@@ -1,0 +1,33 @@
+name: Nightly LiveLaw Update
+
+on:
+  schedule:
+    - cron: '0 0 * * *'  # Runs at 00:00 UTC every day
+  workflow_dispatch:      # Allows manual trigger for testing
+
+jobs:
+  update-md:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write    # Needed to push changes back to the repo
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.x'
+
+      - name: Install dependencies
+        run: pip install requests
+
+      - name: Run script to fetch cases
+        run: python fetch_cases.py
+
+      - name: Commit and push changes
+        uses: stefanzweifel/git-auto-commit-action@v5
+        with:
+          commit_message: "docs: update ll.md with latest SC judgments"
+          file_pattern: 'll.md'
