@@ -24,3 +24,38 @@
 ### [2026 LiveLaw (SC) 137 |  N. MANOHARAN VERSUS THE ADMINISTRATIVE OFFICER & ANR. (with connected cases)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-137-n-manoharan-versus-the-administrative-officer-anr-with-connected-cases-522793)
 *Published on: Wed, 11 Feb 2026 14:44:12 GMT*
 
+### [2026 LiveLaw (SC) 149 | National Insurance Company Ltd v. Rathlavath Chandulal and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-149-national-insurance-company-ltd-v-rathlavath-chandulal-and-others-522983)
+*Published on: Thu, 12 Feb 2026 16:24:07 GMT*
+
+
+### [2026 LiveLaw (SC) 148  | Union of India v. Sgt Girish Kumar and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-148-union-of-india-v-sgt-girish-kumar-and-ors-522955)
+*Published on: Thu, 12 Feb 2026 14:01:46 GMT*
+
+
+### [2026 LiveLaw (SC) 147 | Sumit v. State of UP and another](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-147-sumit-v-state-of-up-and-another-522927)
+*Published on: Thu, 12 Feb 2026 12:41:43 GMT*
+
+
+### [2026 LiveLaw (SC) 146 |  SHALLY MAHANT @ SANDEEP VERSUS STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-146-shally-mahant-sandeep-versus-state-of-punjab-522904)
+*Published on: Thu, 12 Feb 2026 08:38:47 GMT*
+
+
+### [2026 LiveLaw (SC) 145 | VIVA HIGHWAYS LTD VERSUS MADHYA PRADESH ROAD DEVELOPMENT CORPORATION LTD & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-145-viva-highways-ltd-versus-madhya-pradesh-road-development-corporation-ltd-anr-522900)
+*Published on: Thu, 12 Feb 2026 08:08:26 GMT*
+
+
+### [2026 LiveLaw (SC) 144 | UNION PUBLIC SERVICE COMMISSION vs. T DHANGOPAL RAO](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-144-union-public-service-commission-vs-t-dhangopal-rao-522850)
+*Published on: Thu, 12 Feb 2026 04:49:17 GMT*
+
+
+### [2026 LiveLaw (SC) 143 | BOARD OF CONTROL FOR CRICKET IN INDIA Versus CRICKET ASSOCIATION OF BIHAR AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-143-board-of-control-for-cricket-in-india-versus-cricket-association-of-bihar-and-ors-522847)
+*Published on: Thu, 12 Feb 2026 04:47:16 GMT*
+
+
+### [2026 LiveLaw (SC) 142 | APEX HEIGHTS PVT. LTD. Vs RAM KISHOR ARORA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-142-apex-heights-pvt-ltd-vs-ram-kishor-arora-522846)
+*Published on: Thu, 12 Feb 2026 04:45:27 GMT*
+
+
+### [2026 LiveLaw (SC) 141 | CHETRAM VERMA VERSUS STATE OF U.P.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-141-chetram-verma-versus-state-of-up-522841)
+*Published on: Thu, 12 Feb 2026 04:36:48 GMT*
+
