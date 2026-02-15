@@ -78,3 +78,18 @@
 ### [2026 LiveLaw (SC) 150 | YASH DODANI & ORS. VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-150-yash-dodani-ors-versus-union-of-india-ors-522996)
 *Published on: Fri, 13 Feb 2026 04:49:30 GMT*
 
+### [2026 LiveLaw (SC) 158 | BALMUKUND SINGH GAUTAM VERSUS STATE OF MADHYA PRADESH AND ANR.](https://www.livelaw.in/supreme-court/2026-livelaw-sc-158-balmukund-singh-gautam-versus-state-of-madhya-pradesh-and-anr-523165)
+*Published on: Sat, 14 Feb 2026 09:44:17 GMT*
+
+
+### [2026 LiveLaw (SC) 157 |  MANOJ VERSUS STATE OF MAHARASHTRA & ANR.](https://www.livelaw.in/supreme-court/2026-livelaw-sc-157-manoj-versus-state-of-maharashtra-anr-523158)
+*Published on: Sat, 14 Feb 2026 09:29:23 GMT*
+
+
+### [2026 LiveLaw (SC) 156 | B Prashanth Hegde v. State Bank of India and Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-156-b-prashanth-hegde-v-state-bank-of-india-and-anr-523147)
+*Published on: Sat, 14 Feb 2026 06:33:41 GMT*
+
+
+### [2026 LiveLaw (SC) 155 | M/s Everest Automobiles v. M/s Rajit Enterprises](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-155-ms-everest-automobiles-v-ms-rajit-enterprises-523141)
+*Published on: Sat, 14 Feb 2026 05:40:28 GMT*
+
