@@ -93,3 +93,18 @@
 ### [2026 LiveLaw (SC) 155 | M/s Everest Automobiles v. M/s Rajit Enterprises](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-155-ms-everest-automobiles-v-ms-rajit-enterprises-523141)
 *Published on: Sat, 14 Feb 2026 05:40:28 GMT*
 
+### [2026 LiveLaw (SC) 162 |  HARBINDER SINGH SEKHON & ORS. VERSUS THE STATE OF PUNJAB & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-162-harbinder-singh-sekhon-ors-versus-the-state-of-punjab-ors-523349)
+*Published on: Mon, 16 Feb 2026 16:06:32 GMT*
+
+
+### [2026 LiveLaw (SC) 161 | STATE OF ODISHA & ORS. VERSUS MANAGING COMMITTEE OF NAMATARA GIRLS HIGH SCHOOL](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-161-state-of-odisha-ors-versus-managing-committee-of-namatara-girls-high-school-523323)
+*Published on: Mon, 16 Feb 2026 12:38:04 GMT*
+
+
+### [2026 LiveLaw (SC) 160 | A (MOTHER OF X) Vs STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-160-a-mother-of-x-vs-state-of-maharashtra-523283)
+*Published on: Mon, 16 Feb 2026 09:18:13 GMT*
+
+
+### [2026 LiveLaw (SC) 159 | PAWAN KUMAR & ORS. VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-159-pawan-kumar-ors-versus-union-of-india-ors-523281)
+*Published on: Mon, 16 Feb 2026 09:14:56 GMT*
+
