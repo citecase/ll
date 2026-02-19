@@ -123,3 +123,30 @@
 ### [2026 LiveLaw (SC) 163 | SAREVESH KUMAR VERSUS UNION OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-163-sarevesh-kumar-versus-union-of-india-ors-523398)
 *Published on: Tue, 17 Feb 2026 05:40:58 GMT*
 
+### [2026 LiveLaw (SC) 173 | PRIYANKA KUMARI AND ORS. VERSUS THE STATE OF BIHAR AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-173-priyanka-kumari-and-ors-versus-the-state-of-bihar-and-ors-523703)
+*Published on: Wed, 18 Feb 2026 14:25:50 GMT*
+
+
+### [2026 LiveLaw (SC) 172 | THE KERALA WATER AUTHORITY & ORS. VERSUS T I RAJU & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-172-the-kerala-water-authority-ors-versus-t-i-raju-ors-523655)
+*Published on: Wed, 18 Feb 2026 10:12:09 GMT*
+
+
+### [2026 LiveLaw (SC) 171 | Dinesh Kumar Versus The State of Haryana and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-171-dinesh-kumar-versus-the-state-of-haryana-and-ors-523619)
+*Published on: Wed, 18 Feb 2026 07:50:25 GMT*
+
+
+### [2026 LiveLaw (SC) 170 | RAKESH MITTAL VERSUS AJAY PAL GUPTA, ALIAS SONU CHAUDHARY & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-170-rakesh-mittal-versus-ajay-pal-gupta-alias-sonu-chaudhary-anr-523601)
+*Published on: Wed, 18 Feb 2026 06:37:04 GMT*
+
+
+### [2026 LiveLaw (SC) 169 | PARAMESHWARI VERSUS THE STATE OF TAMIL NADU & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-169-parameshwari-versus-the-state-of-tamil-nadu-ors-523594)
+*Published on: Wed, 18 Feb 2026 05:52:02 GMT*
+
+
+### [2026 LiveLaw (SC) 168 | IN RE: ORDER DATED 17.03.2025 PASSED BY THE HIGH COURT OF JUDICATURE AT ALLAHABAD IN CRIMINAL REVISION NO. 1449/2024 AND ANCILLARY ISSUES](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-168-in-re-order-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-in-criminal-revision-no-14492024-and-ancillary-issues-523586)
+*Published on: Wed, 18 Feb 2026 06:21:29 GMT*
+
+
+### [2026 LiveLaw (SC) 167 | State v. M. Muneer Ahmed and another](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-167-state-v-m-muneer-ahmed-and-another-523575)
+*Published on: Wed, 18 Feb 2026 05:09:08 GMT*
+
