@@ -180,3 +180,6 @@
 ### [2026 LiveLaw (SC) 176 | MUNA BISOI VERSUS STATE OF ODISHA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-176-muna-bisoi-versus-state-of-odisha-523890)
 *Published on: Fri, 20 Feb 2026 04:55:06 GMT*
 
+### [2026 LiveLaw (SC) 182 | BHOPAL MUNICIPAL CORPORATION VERSUS DR SUBHASH C. PANDEY & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-182-bhopal-municipal-corporation-versus-dr-subhash-c-pandey-ors-524036)
+*Published on: Sat, 21 Feb 2026 04:26:48 GMT*
+
