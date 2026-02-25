@@ -202,3 +202,22 @@
 ### [2026 LiveLaw (SC) 183 |  THE UNIVERSITY GRANTS COMMISSION & ANR v. ANNAMALAI UNIVERSITY & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-183-the-university-grants-commission-anr-v-annamalai-university-ors-524148)
 *Published on: Mon, 23 Feb 2026 04:39:19 GMT*
 
+### [2026 LiveLaw (SC) 192 | CATALYST TRUSTEESHIP LTD. versus ECSTASY REALTY PVT. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-192-catalyst-trusteeship-ltd-versus-ecstasy-realty-pvt-ltd-524445)
+*Published on: Tue, 24 Feb 2026 15:42:33 GMT*
+
+
+### [2026 LiveLaw (SC) 191 | Omkara Assets Reconstruction Private Limited. Versus Amit Chaturvedi and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-191-omkara-assets-reconstruction-private-limited-versus-amit-chaturvedi-and-ors-524418)
+*Published on: Tue, 24 Feb 2026 13:23:12 GMT*
+
+
+### [2026 LiveLaw (SC) 190 |  AMAD NOORMAMAD BAKALI VERSUS THE STATE OF GUJARAT & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-190-amad-noormamad-bakali-versus-the-state-of-gujarat-ors-524414)
+*Published on: Tue, 24 Feb 2026 12:59:24 GMT*
+
+
+### [2026 LiveLaw (SC) 189 | SITARAM KUCHHBEDIA VERSUS VIMAL RANA AND OTHERS (and connected matter)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-189-sitaram-kuchhbedia-versus-vimal-rana-and-others-and-connected-matter-524361)
+*Published on: Tue, 24 Feb 2026 09:23:54 GMT*
+
+
+### [2026 LiveLaw (SC) 188 | SHOBHA NAMDEV SONAVANE VERSUS SAMADHAN BAJIRAO SONVANE AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-188-shobha-namdev-sonavane-versus-samadhan-bajirao-sonvane-and-others-524348)
+*Published on: Tue, 24 Feb 2026 07:58:41 GMT*
+
