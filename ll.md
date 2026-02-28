@@ -275,3 +275,6 @@
 ### [2026 LiveLaw (SC) 200 | VANDANA JAIN & ORS. VERSUS THE STATE OF UTTAR PRADESH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-200-vandana-jain-ors-versus-the-state-of-uttar-pradesh-ors-524699)
 *Published on: Thu, 26 Feb 2026 07:01:37 GMT*
 
+### [2026 LiveLaw (SC) 207 | Torrent Power Limited v. Ashish Arjunkumar Rathi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-207-torrent-power-limited-v-ashish-arjunkumar-rathi-524950)
+*Published on: Fri, 27 Feb 2026 15:50:13 GMT*
+
