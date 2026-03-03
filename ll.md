@@ -281,3 +281,6 @@
 ### [2026 LiveLaw (SC) 208 |  United Labour Federation v Gagandeep Singh Bedi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-208-united-labour-federation-v-gagandeep-singh-bedi-524995)
 *Published on: Sat, 28 Feb 2026 07:09:12 GMT*
 
+### [2026 LiveLaw (SC) 209 | Israr Ahmed Khan v. Amarnath Prasad and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-209-israr-ahmed-khan-v-amarnath-prasad-and-others-525179)
+*Published on: Mon, 02 Mar 2026 14:45:50 GMT*
+
