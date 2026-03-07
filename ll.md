@@ -291,3 +291,10 @@
 ### [2026 LiveLaw (SC) 210 |  BHAGYALAXMI CO-OPERATIVE BANK LTD. VERSUS BABALDAS AMTHARAM PATEL (D) THROUGH LEGAL REPRESENTATIVES & OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-210-bhagyalaxmi-co-operative-bank-ltd-versus-babaldas-amtharam-patel-d-through-legal-representatives-others-525333)
 *Published on: Thu, 05 Mar 2026 05:05:05 GMT*
 
+### [2026 LiveLaw (SC) 213  | West Bengal State Electricity Distribution Co. Ltd. v. Adhunik Power & Natural Resource Ltd. & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-213-west-bengal-state-electricity-distribution-co-ltd-v-adhunik-power-natural-resource-ltd-ors-525464)
+*Published on: Fri, 06 Mar 2026 09:43:59 GMT*
+
+
+### [2026 LiveLaw (SC) 212 |  Dr Jiji KS v Shibu K](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-212-dr-jiji-ks-v-shibu-k-525420)
+*Published on: Fri, 06 Mar 2026 05:00:34 GMT*
+
