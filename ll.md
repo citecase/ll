@@ -401,3 +401,10 @@
 ### [2026 LiveLaw (SC) 236 | Manohar Lal v. Commissioner of Police & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-236-manohar-lal-v-commissioner-of-police-ors-526238)
 *Published on: Fri, 13 Mar 2026 04:58:08 GMT*
 
+### [2026 LiveLaw (SC) 242 | RAJ BAHADUR SINGH VERSUS STATE OF UTTARAKHAND](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-242-raj-bahadur-singh-versus-state-of-uttarakhand-526397)
+*Published on: Sat, 14 Mar 2026 05:44:22 GMT*
+
+
+### [2026 LiveLaw (SC) 241 | MIZO CHIEF COUNCIL MIZORAM, THR. PRESIDENT SHRI L. CHINZAH v UNION OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-241-mizo-chief-council-mizoram-thr-president-shri-l-chinzah-v-union-of-india-ors-526366)
+*Published on: Sat, 14 Mar 2026 04:21:03 GMT*
+
