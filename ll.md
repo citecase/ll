@@ -408,3 +408,6 @@
 ### [2026 LiveLaw (SC) 241 | MIZO CHIEF COUNCIL MIZORAM, THR. PRESIDENT SHRI L. CHINZAH v UNION OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-241-mizo-chief-council-mizoram-thr-president-shri-l-chinzah-v-union-of-india-ors-526366)
 *Published on: Sat, 14 Mar 2026 04:21:03 GMT*
 
+### [2026 LiveLaw (SC) 243 | RAJENDRA & ORS VERSUS STATE OF UTTARAKHAND](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-243-rajendra-ors-versus-state-of-uttarakhand-526462)
+*Published on: Sun, 15 Mar 2026 08:27:07 GMT*
+
