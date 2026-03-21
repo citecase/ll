@@ -511,3 +511,14 @@
 ### [2026 LiveLaw (SC) 262 | THE MANAGEMENT OF STEEL AUTHORITY OF INDIA AND OTHERS VERSUS SHAMBHU PRASAD SINGH AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-262-the-management-of-steel-authority-of-india-and-others-versus-shambhu-prasad-singh-and-others-527014)
 *Published on: Thu, 19 Mar 2026 05:27:33 GMT*
 
+### [2026 LiveLaw (SC) 272 |  UJAAS ENERGY LTD. VS. WEST BENGAL POWER DEVELOPMENT CORPORATION LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-272-ujaas-energy-ltd-vs-west-bengal-power-development-corporation-ltd-527229)
+*Published on: Fri, 20 Mar 2026 12:58:12 GMT*
+
+
+### [2026 LiveLaw (SC) 271 | Sujoy Ghosh v. State of Jharkhand](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-271-sujoy-ghosh-v-state-of-jharkhand-527222)
+*Published on: Fri, 20 Mar 2026 14:30:18 GMT*
+
+
+### [2026 LiveLaw (SC) 270 | DHIRUBHAI NANJIBHAI PATEL LOTWALA VERSUS STATE OF GUJARAT & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-270-dhirubhai-nanjibhai-patel-lotwala-versus-state-of-gujarat-anr-527217)
+*Published on: Fri, 20 Mar 2026 11:00:39 GMT*
+
