@@ -547,3 +547,42 @@
 ### [2026 LiveLaw (SC) 278 | THE CUSTOMS v. FARIDAH NAKANWAGI](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-278-the-customs-v-faridah-nakanwagi-527496)
 *Published on: Mon, 23 Mar 2026 11:38:34 GMT*
 
+### [2026 LiveLaw (SC) 289 |  Central Transmission Utility of India Limited Versus Sumit Binani & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-289-central-transmission-utility-of-india-limited-versus-sumit-binani-ors-527684)
+*Published on: Tue, 24 Mar 2026 13:27:20 GMT*
+
+
+### [2026 LiveLaw (SC) 288 | CHINTHADA ANAND v STATE OF ANDHRA PRADESH AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-288-chinthada-anand-v-state-of-andhra-pradesh-and-ors-527680)
+*Published on: Tue, 24 Mar 2026 13:02:19 GMT*
+
+
+### [2026 LiveLaw (SC) 287 |  M/s ABS Marine Services Versus The Andaman and Nicobar Administration](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-287-ms-abs-marine-services-versus-the-andaman-and-nicobar-administration-527628)
+*Published on: Tue, 24 Mar 2026 08:34:45 GMT*
+
+
+### [2026 LiveLaw (SC) 286 | M/S.LAMBA EXPORTS PVT. LTD. VERSUS M/S.DHIR GLOBAL INDUSTRIES PVT. LTD. AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-286-mslamba-exports-pvt-ltd-versus-msdhir-global-industries-pvt-ltd-and-ors-527619)
+*Published on: Tue, 24 Mar 2026 08:12:33 GMT*
+
+
+### [2026 LiveLaw (SC )285 | Yogendra Kumar Singh v Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-285-yogendra-kumar-singh-v-union-of-india-527617)
+*Published on: Tue, 24 Mar 2026 08:06:27 GMT*
+
+
+### [2026 LiveLaw (SC) 284 | Wg Cdr Sucheta EDN v Union of India and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-284-wg-cdr-sucheta-edn-v-union-of-india-and-others-527616)
+*Published on: Tue, 24 Mar 2026 08:05:31 GMT*
+
+
+### [2026 LiveLaw (SC) 283 | Lt Col Pooja Pal and others v Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-283-lt-col-pooja-pal-and-others-v-union-of-india-527615)
+*Published on: Tue, 24 Mar 2026 08:04:25 GMT*
+
+
+### [2026 LiveLaw (SC) 282  | STATE OF KARNATAKA & ORS. VERSUS SANTHOSH KUMAR C](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-282-state-of-karnataka-ors-versus-santhosh-kumar-c-527602)
+*Published on: Tue, 24 Mar 2026 06:32:03 GMT*
+
+
+### [2026 LiveLaw (SC) 281 | CHAYA & ORS. ETC. VERSUS THE STATE OF MAHARASHTRA & ANR. ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-281-chaya-ors-etc-versus-the-state-of-maharashtra-anr-etc-527576)
+*Published on: Tue, 24 Mar 2026 05:12:47 GMT*
+
+
+### [2026 LiveLaw (SC) 280 | DISTRICT MAGISTRATE AND DISTRICT ELECTION OFFICER AND COLLECTOR, GWALIOR, M.P. v NATIONAL INSURANCE COMPANY LIMITED & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-280-district-magistrate-and-district-election-officer-and-collector-gwalior-mp-v-national-insurance-company-limited-ors-527566)
+*Published on: Tue, 24 Mar 2026 04:51:29 GMT*
+
