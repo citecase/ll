@@ -623,3 +623,10 @@
 ### [2026 LiveLaw (SC) 298 |LAL MUNI DEVI VERSUS STATE OF BIHAR & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-298-lal-muni-devi-versus-state-of-bihar-anr-527988)
 *Published on: Fri, 27 Mar 2026 03:16:02 GMT*
 
+### [2026 LiveLaw (SC) 301 |  SOUTHERN POWER DISTRIBUTION COMPANY OF ANDHRA PRADESH LIMITED & ANR. VERSUS GREEN INFRA WIND SOLUTIONS LIMITED & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-301-southern-power-distribution-company-of-andhra-pradesh-limited-anr-versus-green-infra-wind-solutions-limited-ors-528168)
+*Published on: Sat, 28 Mar 2026 15:20:26 GMT*
+
+
+### [2026 LiveLaw (SC) 300 | ANDANAYYA AND ORS. VERSUS DEPUTY CHIEF ENGINEER AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-300-andanayya-and-ors-versus-deputy-chief-engineer-and-ors-528166)
+*Published on: Sat, 28 Mar 2026 15:06:48 GMT*
+
