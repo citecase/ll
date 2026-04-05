@@ -717,3 +717,18 @@
 ### [2026 LiveLaw (SC) 322 | PUNJAB & SIND BANK VS. SH. RAJ KUMAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-322-punjab-sind-bank-vs-sh-raj-kumar-528813)
 *Published on: Fri, 03 Apr 2026 05:11:34 GMT*
 
+### [2026 LiveLaw (SC) 327 | DR. RAJINDER RAJAN VERSUS UNION OF INDIA & ANR,](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-327-dr-rajinder-rajan-versus-union-of-india-anr-529025)
+*Published on: Sat, 04 Apr 2026 16:35:32 GMT*
+
+
+### [2026 LiveLaw (SC) 326 | T S R Venkatramana v. Union of India & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-326-t-s-r-venkatramana-v-union-of-india-ors-529008)
+*Published on: Sat, 04 Apr 2026 15:00:43 GMT*
+
+
+### [2026 LiveLaw (SC) 325 |  LOGANATHAN VERSUS THE STATE OF TAMIL NADU & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-325-loganathan-versus-the-state-of-tamil-nadu-ors-529005)
+*Published on: Sat, 04 Apr 2026 14:46:02 GMT*
+
+
+### [2026 LiveLaw (SC) 324 | Shankar v State of Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-324-shankar-v-state-of-rajasthan-528960)
+*Published on: Sat, 04 Apr 2026 09:22:47 GMT*
+
