@@ -732,3 +732,6 @@
 ### [2026 LiveLaw (SC) 324 | Shankar v State of Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-324-shankar-v-state-of-rajasthan-528960)
 *Published on: Sat, 04 Apr 2026 09:22:47 GMT*
 
+### [2026 LiveLaw (SC) 328 | COMMISSIONER, DELHI POLICE & ANR. VS. UTTAM KUMAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-328-commissioner-delhi-police-anr-vs-uttam-kumar-529056)
+*Published on: Sun, 05 Apr 2026 12:19:57 GMT*
+
