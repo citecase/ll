@@ -910,3 +910,26 @@
 ### [2026 LiveLaw (SC) 370 | MILIND S/O ASHRUBA DHANVE AND ORS. VERSUS THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-370-milind-so-ashruba-dhanve-and-ors-versus-the-state-of-maharashtra-530307)
 *Published on: Wed, 15 Apr 2026 05:32:31 GMT*
 
+### [2026 LiveLaw (SC) 380 | Priyanka Sarkariya v The Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-380-priyanka-sarkariya-v-the-union-of-india-530598)
+*Published on: Thu, 16 Apr 2026 17:01:53 GMT*
+
+
+### [2026 LiveLaw (SC) 379 | SHANKAR MAHTO VERSUS STATE OF BIHAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-379-shankar-mahto-versus-state-of-bihar-530583)
+*Published on: Thu, 16 Apr 2026 14:56:11 GMT*
+
+
+### [2026 LiveLaw (SC) 378 | Venu Gopalakrishnan v State of Kerala and another](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-378-venu-gopalakrishnan-v-state-of-kerala-and-another-530582)
+*Published on: Thu, 16 Apr 2026 14:51:18 GMT*
+
+
+### [2026 LiveLaw (SC) 377 | J&K ECONOMIC RECONSTRUCTION AGENCY VERSUS RASH BUILDERS INDIA PRIVATE LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-377-jk-economic-reconstruction-agency-versus-rash-builders-india-private-limited-530539)
+*Published on: Thu, 16 Apr 2026 11:06:20 GMT*
+
+
+### [2026 LiveLaw (SC) 376 | EX. SQN. LDR. R. SOOD VS. UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-376-ex-sqn-ldr-r-sood-vs-union-of-india-ors-530478)
+*Published on: Thu, 16 Apr 2026 08:02:24 GMT*
+
+
+### [2026 LiveLaw (SC) 375  | CANARA BANK VERSUS KAVITA CHOWDHARY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-375-canara-bank-versus-kavita-chowdhary-530432)
+*Published on: Thu, 16 Apr 2026 04:40:09 GMT*
+
