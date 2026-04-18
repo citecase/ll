@@ -933,3 +933,30 @@
 ### [2026 LiveLaw (SC) 375  | CANARA BANK VERSUS KAVITA CHOWDHARY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-375-canara-bank-versus-kavita-chowdhary-530432)
 *Published on: Thu, 16 Apr 2026 04:40:09 GMT*
 
+### [2026 LiveLaw (SC) 388 | NAGREEKA INDCON PRODUCTS PVT. LTD. VERSUS CARGOCARE LOGISTICS (INDIA) PVT. LTD](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-388-nagreeka-indcon-products-pvt-ltd-versus-cargocare-logistics-india-pvt-ltd-530743)
+*Published on: Fri, 17 Apr 2026 14:38:30 GMT*
+
+
+### [2026 LiveLaw (SC) 386 |  IN RE: ILLEGAL SAND MINING IN THE NATIONAL CHAMBAL SANCTUARY AND THREAT TO ENDANGERED AQUATIC WILDLIFE Versus](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-386-in-re-illegal-sand-mining-in-the-national-chambal-sanctuary-and-threat-to-endangered-aquatic-wildlife-versus-530711)
+*Published on: Fri, 17 Apr 2026 11:36:09 GMT*
+
+
+### [2026 LiveLaw (SC) 385  | MARIA MARTINS VERSUS NOEL ZUZARTE AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-385-maria-martins-versus-noel-zuzarte-and-others-530708)
+*Published on: Fri, 17 Apr 2026 11:19:17 GMT*
+
+
+### [2026 LiveLaw (SC) 384 | PRAMOD SHROFF VERSUS MOHAN SINGH CHOPRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-384-pramod-shroff-versus-mohan-singh-chopra-530667)
+*Published on: Fri, 17 Apr 2026 08:13:21 GMT*
+
+
+### [2026 LiveLaw (SC) 383 | S. VALLIAMMAI & OTHERS VERSUS S. RAMANATHAN & ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-383-s-valliammai-others-versus-s-ramanathan-another-530646)
+*Published on: Fri, 17 Apr 2026 05:58:16 GMT*
+
+
+### [2026 LiveLaw (SC) 382 | Shuvendu Saha v. State of West Bengal](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-382-shuvendu-saha-v-state-of-west-bengal-530643)
+*Published on: Fri, 17 Apr 2026 05:53:04 GMT*
+
+
+### [2026 LiveLaw (SC) 381 | Rahul Gupta versus Station House Officer and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-381-rahul-gupta-versus-station-house-officer-and-others-530614)
+*Published on: Fri, 17 Apr 2026 04:32:58 GMT*
+
