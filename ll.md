@@ -960,3 +960,18 @@
 ### [2026 LiveLaw (SC) 381 | Rahul Gupta versus Station House Officer and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-381-rahul-gupta-versus-station-house-officer-and-others-530614)
 *Published on: Fri, 17 Apr 2026 04:32:58 GMT*
 
+### [2026 LiveLaw (SC) 391 | IN RE: PHALODI ACCIDENT Versus](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-391-in-re-phalodi-accident-versus-530846)
+*Published on: Sat, 18 Apr 2026 15:54:58 GMT*
+
+
+### [2026 LiveLaw (SC) 390 | Madan Singh and Ors. v. State of Haryana and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-390-madan-singh-and-ors-v-state-of-haryana-and-ors-530845)
+*Published on: Sat, 18 Apr 2026 15:50:25 GMT*
+
+
+### [2026 LiveLaw (SC) 389 | FEROZE BASHA & ANR. VERSUS STATE OF TAMIL NADU](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-389-feroze-basha-anr-versus-state-of-tamil-nadu-530822)
+*Published on: Sat, 18 Apr 2026 10:45:40 GMT*
+
+
+### [2026 LiveLaw (SC) 387 | Deepa Joshi v Gaurav Joshi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-387-deepa-joshi-v-gaurav-joshi-530720)
+*Published on: Sat, 18 Apr 2026 05:55:47 GMT*
+
