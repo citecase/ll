@@ -975,3 +975,26 @@
 ### [2026 LiveLaw (SC) 387 | Deepa Joshi v Gaurav Joshi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-387-deepa-joshi-v-gaurav-joshi-530720)
 *Published on: Sat, 18 Apr 2026 05:55:47 GMT*
 
+### [2026 LiveLaw (SC) 397 | PAWAN GARG & ORS. VERSUS SOUTH DELHI MUNICIPAL CORPORATION](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-396-pawan-garg-ors-versus-south-delhi-municipal-corporation-531064)
+*Published on: Mon, 20 Apr 2026 16:09:55 GMT*
+
+
+### [2026 LiveLaw (SC) 396 | NILESH C. OJHA VERSUS HIGH COURT OF JUDICATURE AT BOMBAY THROUGH SECRETARY & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-396-nilesh-c-ojha-versus-high-court-of-judicature-at-bombay-through-secretary-ors-531035)
+*Published on: Mon, 20 Apr 2026 14:05:40 GMT*
+
+
+### [2026 LiveLaw (SC) 395 | MAURICE W. INNIS VERSUS LILY KAZROONI @ LILY ARIF SHAIKH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-395-maurice-w-innis-versus-lily-kazrooni-lily-arif-shaikh-530962)
+*Published on: Mon, 20 Apr 2026 07:58:21 GMT*
+
+
+### [2026 LiveLaw (SC) 394 |PREM CHAND AND OTHERS VERSUS STATE OF PUNJAB AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-394-prem-chand-and-others-versus-state-of-punjab-and-another-530957)
+*Published on: Mon, 20 Apr 2026 07:44:55 GMT*
+
+
+### [2026 LiveLaw (SC) 393 | VPS HEALTHCARE PRIVATE LIMITED AND ANOTHER VERSUS PRABHAT KUMAR SRIVASTAVA AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-393-vps-healthcare-private-limited-and-another-versus-prabhat-kumar-srivastava-and-another-530932)
+*Published on: Mon, 20 Apr 2026 05:51:55 GMT*
+
+
+### [2026 LiveLaw (SC) 393 | AVJ HEIGHTSS APARTMENT OWNERS ASSOCIATION VERSUS IIFL FINANCE LIMITED & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-393-avj-heightss-apartment-owners-association-versus-iifl-finance-limited-anr-530924)
+*Published on: Mon, 20 Apr 2026 05:17:43 GMT*
+
