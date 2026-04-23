@@ -1025,3 +1025,38 @@
 ### [2026 LiveLaw (SC) 398 | V.K. JOHN VERSUS S. MUKANCHAND BOTHRA AND HUF (DIED) REPRESENTED BY LRS. & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-398-vk-john-versus-s-mukanchand-bothra-and-huf-died-represented-by-lrs-ors-531085)
 *Published on: Tue, 21 Apr 2026 04:12:08 GMT*
 
+### [2026 LiveLaw (SC) 412 | RAJENDRA SINGH BORA VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-412-rajendra-singh-bora-versus-union-of-india-ors-531373)
+*Published on: Wed, 22 Apr 2026 15:43:43 GMT*
+
+
+### [2026 LiveLaw (SC) 411 | RAJEEV MEHTA @ RAJIV KISHOR KIRTILAL MEHTA VERSUS PARAM BIR SINGH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-411-rajeev-mehta-rajiv-kishor-kirtilal-mehta-versus-param-bir-singh-531344)
+*Published on: Wed, 22 Apr 2026 12:48:51 GMT*
+
+
+### [2026 LiveLaw (SC) 410 | THE STATE OF ASSAM VERSUS MOINUL HAQUE @ MONU](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-410-the-state-of-assam-versus-moinul-haque-monu-531329)
+*Published on: Wed, 22 Apr 2026 11:57:29 GMT*
+
+
+### [2026 LiveLaw (SC) 409 | M/s. MARG LIMITED VERSUS SUSHIL LALWANI & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-408-ms-marg-limited-versus-sushil-lalwani-ors-531323)
+*Published on: Wed, 22 Apr 2026 11:20:21 GMT*
+
+
+### [2026 LiveLaw (SC) 408 | S. LEOREX SEBASTIAN & ANR. versus SAROJINI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-408-s-leorex-sebastian-anr-versus-sarojini-ors-531291)
+*Published on: Wed, 22 Apr 2026 09:10:26 GMT*
+
+
+### [2026 LiveLaw (SC) 407 | Prahlad Sahai v Haryana Roadways and anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-407-prahlad-sahai-v-haryana-roadways-and-anr-531276)
+*Published on: Wed, 22 Apr 2026 07:38:41 GMT*
+
+
+### [2026 LiveLaw (SC) 406 |  Nikhat Parveen @ Khusboo Khatoon v. Rafique @ Shillu](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-406-nikhat-parveen-khusboo-khatoon-v-rafique-shillu-531269)
+*Published on: Wed, 22 Apr 2026 07:03:18 GMT*
+
+
+### [2026 LiveLaw (SC) 405 | Babu Singh v. Consolidation Officer and Others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-405-babu-singh-v-consolidation-officer-and-others-531258)
+*Published on: Wed, 22 Apr 2026 06:14:56 GMT*
+
+
+### [2026 LiveLaw (SC) 404 |  Premal Pratap Joisher & Anr. v. Vikram Jethlal Joisher & Ors. Etc.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-404-premal-pratap-joisher-anr-v-vikram-jethlal-joisher-ors-etc-531252)
+*Published on: Wed, 22 Apr 2026 05:47:02 GMT*
+
