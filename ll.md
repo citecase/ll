@@ -1060,3 +1060,26 @@
 ### [2026 LiveLaw (SC) 404 |  Premal Pratap Joisher & Anr. v. Vikram Jethlal Joisher & Ors. Etc.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-404-premal-pratap-joisher-anr-v-vikram-jethlal-joisher-ors-etc-531252)
 *Published on: Wed, 22 Apr 2026 05:47:02 GMT*
 
+### [2026 LiveLaw (SC) 418 | ANJANI TECHNOPLAST LTD. VERSUS SHUBH GAUTAM](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-418-anjani-technoplast-ltd-versus-shubh-gautam-531514)
+*Published on: Thu, 23 Apr 2026 12:53:55 GMT*
+
+
+### [2026 LiveLaw (SC) 417 | SHYAM LAL THAKUR v. BAR COUNCIL OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-417-shyam-lal-thakur-v-bar-council-of-india-531479)
+*Published on: Thu, 23 Apr 2026 09:52:17 GMT*
+
+
+### [2026 LiveLaw (SC) 416 | CHAITANYA BAHUUDDESHIYA SHIKSHAN PRASARAK MANDAL & ORS. VERSUS AUXILO FINSERVE PVT. LTD. & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-416-chaitanya-bahuuddeshiya-shikshan-prasarak-mandal-ors-versus-auxilo-finserve-pvt-ltd-ors-531467)
+*Published on: Thu, 23 Apr 2026 09:14:55 GMT*
+
+
+### [2026 LiveLaw (SC) 415 | ADALAT YADAV ETC. VERSUS THE STATE OF BIHAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-415-adalat-yadav-etc-versus-the-state-of-bihar-531446)
+*Published on: Thu, 23 Apr 2026 07:26:46 GMT*
+
+
+### [2026 LiveLaw (SC) 414 |  UNCHGAON VILLAGE PANCHAYAT VERSUS KOLHAPUR MUNICIPAL CORPORATION AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-414-unchgaon-village-panchayat-versus-kolhapur-municipal-corporation-and-another-531441)
+*Published on: Thu, 23 Apr 2026 07:02:55 GMT*
+
+
+### [2026 LiveLaw (SC) 413 | UNION OF INDIA VERSUS SIR SOBHA SINGH AND SONS PVT. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-413-union-of-india-versus-sir-sobha-singh-and-sons-pvt-ltd-531437)
+*Published on: Thu, 23 Apr 2026 06:56:12 GMT*
+
