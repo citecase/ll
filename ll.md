@@ -1083,3 +1083,22 @@
 ### [2026 LiveLaw (SC) 413 | UNION OF INDIA VERSUS SIR SOBHA SINGH AND SONS PVT. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-413-union-of-india-versus-sir-sobha-singh-and-sons-pvt-ltd-531437)
 *Published on: Thu, 23 Apr 2026 06:56:12 GMT*
 
+### [2026 LiveLaw (SC) 423 |  A.P. STATE WAKF BOARD THROUGH CHAIRPERSON VERSUS JANAKI BUSAPPA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-423-ap-state-wakf-board-through-chairperson-versus-janaki-busappa-531685)
+*Published on: Fri, 24 Apr 2026 15:22:32 GMT*
+
+
+### [2026 LiveLaw (SC) 422 |  SIVARAMAN NAIR AND OTHERS VERSUS STATE OF KERALA AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-421-sivaraman-nair-and-others-versus-state-of-kerala-and-another-531665)
+*Published on: Fri, 24 Apr 2026 12:50:21 GMT*
+
+
+### [2026 LiveLaw (SC) 421 |  State of Punjab v Sukhwinder Singh @ Gora](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-421-state-of-punjab-v-sukhwinder-singh-gora-531649)
+*Published on: Fri, 24 Apr 2026 11:30:52 GMT*
+
+
+### [2026 LiveLaw (SC) 420 | CHANDNI PRATEEK SHARMA v HIGH CIURT OF GUJARAT](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-420-chandni-prateek-sharma-v-high-ciurt-of-gujarat-531578)
+*Published on: Fri, 24 Apr 2026 05:31:24 GMT*
+
+
+### [2026 LiveLaw (SC) 419 | OM PRAKASH CHHAWNIKA @ OM PRAKASH CHABNIKA @ OM PRAKASH CHAWNIKA VERSUS THE STATE OF JHARKHAND & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-419-om-prakash-chhawnika-om-prakash-chabnika-om-prakash-chawnika-versus-the-state-of-jharkhand-anr-531567)
+*Published on: Fri, 24 Apr 2026 05:08:51 GMT*
+
