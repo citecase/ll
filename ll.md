@@ -1102,3 +1102,10 @@
 ### [2026 LiveLaw (SC) 419 | OM PRAKASH CHHAWNIKA @ OM PRAKASH CHABNIKA @ OM PRAKASH CHAWNIKA VERSUS THE STATE OF JHARKHAND & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-419-om-prakash-chhawnika-om-prakash-chabnika-om-prakash-chawnika-versus-the-state-of-jharkhand-anr-531567)
 *Published on: Fri, 24 Apr 2026 05:08:51 GMT*
 
+### [2026 LiveLaw (SC) 425 |  Home Care Retail Marts Pvt Ltd v. Haresh N Sangavi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-425-home-care-retail-marts-pvt-ltd-v-haresh-n-sangavi-531819)
+*Published on: Sun, 26 Apr 2026 11:48:03 GMT*
+
+
+### [2026 LiveLaw (SC) 424 | VINAY RAGHUNATH DESHMUKH VERSUS NATWARLAL SHAMJI GADA  AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-424-vinay-raghunath-deshmukh-versus-natwarlal-shamji-gada-and-another-531807)
+*Published on: Sun, 26 Apr 2026 09:00:59 GMT*
+
