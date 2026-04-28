@@ -1109,3 +1109,10 @@
 ### [2026 LiveLaw (SC) 424 | VINAY RAGHUNATH DESHMUKH VERSUS NATWARLAL SHAMJI GADA  AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-424-vinay-raghunath-deshmukh-versus-natwarlal-shamji-gada-and-another-531807)
 *Published on: Sun, 26 Apr 2026 09:00:59 GMT*
 
+### [2026 LiveLaw (SC) 427 | ANAND JAKKAPPA PUJARI @GADDADAR VERSUS THE STATE OF KARNATAKA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-427-anand-jakkappa-pujari-gaddadar-versus-the-state-of-karnataka-531952)
+*Published on: Mon, 27 Apr 2026 14:08:02 GMT*
+
+
+### [2026 LiveLaw (SC) 426 |  NARAYAN VERSUS THE STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-426-narayan-versus-the-state-of-madhya-pradesh-531882)
+*Published on: Mon, 27 Apr 2026 08:04:56 GMT*
+
