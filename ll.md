@@ -1116,3 +1116,22 @@
 ### [2026 LiveLaw (SC) 426 |  NARAYAN VERSUS THE STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-426-narayan-versus-the-state-of-madhya-pradesh-531882)
 *Published on: Mon, 27 Apr 2026 08:04:56 GMT*
 
+### [2026 LiveLaw (SC) 432 | SADACHARI SINGH TOMAR VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-432-sadachari-singh-tomar-versus-union-of-india-ors-532099)
+*Published on: Tue, 28 Apr 2026 14:39:31 GMT*
+
+
+### [2026 LiveLaw (SC) 431 | Aman Singh and another v. State of Bihar](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-431-aman-singh-and-another-v-state-of-bihar-532084)
+*Published on: Tue, 28 Apr 2026 13:16:12 GMT*
+
+
+### [2026 LiveLaw (SC) 430 |  LUCKNOW PUBLIC SCHOOL, ELDICO AND ANR. VERSUS THE STATE OF UTTAR PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-430-lucknow-public-school-eldico-and-anr-versus-the-state-of-uttar-pradesh-ors-532075)
+*Published on: Tue, 28 Apr 2026 12:15:30 GMT*
+
+
+### [2026 LiveLaw (SC) 429 |  S. ANAND v STATE OF TAMIL NADU REPRESENTED BY ITS INSPECTOR OF POLICE AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-429-s-anand-v-state-of-tamil-nadu-represented-by-its-inspector-of-police-and-anr-532028)
+*Published on: Tue, 28 Apr 2026 07:56:48 GMT*
+
+
+### [2026 LiveLaw (SC) 428  | NEW DELHI NATURE SOCIETY THROUGH VERHAEN KHANNA VERSUS DIRECTOR HORTICULTURE DDA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-428-new-delhi-nature-society-through-verhaen-khanna-versus-director-horticulture-dda-ors-531994)
+*Published on: Tue, 28 Apr 2026 04:29:50 GMT*
+
