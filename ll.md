@@ -1169,3 +1169,10 @@
 ### [2026 LiveLaw (SC) 440 | M/s. MCM Worldwide Private Limited versus M/s. Construction Industry Development Council](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-440-ms-mcm-worldwide-private-limited-versus-ms-construction-industry-development-council-532319)
 *Published on: Thu, 30 Apr 2026 06:46:13 GMT*
 
+### [2026 LiveLaw (SC) 443 | Pawan Khera v State of Assam](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-443-pawan-khera-v-state-of-assam-532525)
+*Published on: Fri, 01 May 2026 12:33:19 GMT*
+
+
+### [2026 LiveLaw (SC) 442 | RELIANCE EMINENT TRADING AND COMMERCIAL PRIVATE LIMITED VERSUS DELHI DEVELOPMENT AUTHORITY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-442-reliance-eminent-trading-and-commercial-private-limited-versus-delhi-development-authority-532524)
+*Published on: Fri, 01 May 2026 12:31:03 GMT*
+
