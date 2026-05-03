@@ -1176,3 +1176,10 @@
 ### [2026 LiveLaw (SC) 442 | RELIANCE EMINENT TRADING AND COMMERCIAL PRIVATE LIMITED VERSUS DELHI DEVELOPMENT AUTHORITY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-442-reliance-eminent-trading-and-commercial-private-limited-versus-delhi-development-authority-532524)
 *Published on: Fri, 01 May 2026 12:31:03 GMT*
 
+### [2026 LiveLaw (SC) 445 | NANDI INFRASTRUCTURE CORRIDOR ENTERPRISES LTD. & ANR. VERSUS B. GURAPPA NAIDU & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-445-nandi-infrastructure-corridor-enterprises-ltd-anr-versus-b-gurappa-naidu-ors-532605)
+*Published on: Sat, 02 May 2026 11:24:13 GMT*
+
+
+### [2026 LiveLaw (SC) 444 |  Challani Ginning and Pressing Factory Versus Kamal](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-444-challani-ginning-and-pressing-factory-versus-kamal-532586)
+*Published on: Sat, 02 May 2026 09:11:40 GMT*
+
