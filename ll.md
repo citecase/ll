@@ -1217,3 +1217,26 @@
 ### [2026 LiveLaw (SC) 451 | SACHIN YADAV VERSUS STATE (NCT of DELHI) & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-451-sachin-yadav-versus-state-nct-of-delhi-anr-532794)
 *Published on: Mon, 04 May 2026 11:58:57 GMT*
 
+### [2026 LiveLaw (SC) 460 | Alpha Corp Development Private Limited versus Greater Noida Industrial Development Authority (GNIDA) and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-460-alpha-corp-development-private-limited-versus-greater-noida-industrial-development-authority-gnida-and-others-532972)
+*Published on: Tue, 05 May 2026 11:18:24 GMT*
+
+
+### [2026 LiveLaw (SC) 459 | Shaileshbhai Govindbhai Makwana v. State of Maharashtra & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-459-shaileshbhai-govindbhai-makwana-v-state-of-maharashtra-anr-532941)
+*Published on: Tue, 05 May 2026 09:39:37 GMT*
+
+
+### [2026 LiveLaw (SC) 458  | MOHAN KARTHIK & ORS. VERSUS STATE OF TAMIL NADU, & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-458-mohan-karthik-ors-versus-state-of-tamil-nadu-anr-532936)
+*Published on: Tue, 05 May 2026 09:27:26 GMT*
+
+
+### [2026 LiveLaw (SC) 457  | T. GNANAVEL VERSUS R. SASIPRIYA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-457-t-gnanavel-versus-r-sasipriya-and-others-532900)
+*Published on: Tue, 05 May 2026 06:28:52 GMT*
+
+
+### [2026 LiveLaw (SC) 456 | SAHIL MANOJ MACHARE VERSUS THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-456-sahil-manoj-machare-versus-the-state-of-maharashtra-532884)
+*Published on: Tue, 05 May 2026 05:21:22 GMT*
+
+
+### [2026 LiveLaw (SC) 455 |  RAJASTHAN PUBLIC SERVICE COMMISSION VERSUS LAVANSHU SANKHLA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-455-rajasthan-public-service-commission-versus-lavanshu-sankhla-ors-532875)
+*Published on: Tue, 05 May 2026 05:01:23 GMT*
+
