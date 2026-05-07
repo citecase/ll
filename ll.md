@@ -1240,3 +1240,26 @@
 ### [2026 LiveLaw (SC) 455 |  RAJASTHAN PUBLIC SERVICE COMMISSION VERSUS LAVANSHU SANKHLA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-455-rajasthan-public-service-commission-versus-lavanshu-sankhla-ors-532875)
 *Published on: Tue, 05 May 2026 05:01:23 GMT*
 
+### [2026 LiveLaw (SC) 466 | HABBAN SHAH VERSUS SHERUDDIN](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-466-habban-shah-versus-sheruddin-533153)
+*Published on: Wed, 06 May 2026 14:37:21 GMT*
+
+
+### [2026 LiveLaw (SC) 465 | BHOPAL MUNICIPAL CORPORATION VERSUS DR SUBHASH C. PANDEY & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-465-bhopal-municipal-corporation-versus-dr-subhash-c-pandey-ors-533144)
+*Published on: Wed, 06 May 2026 13:27:18 GMT*
+
+
+### [2026 LiveLaw (SC) 464 | JUSTICE SUNANDA BHANDARE FOUNDATION Versus UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-464-justice-sunanda-bhandare-foundation-versus-union-of-india-533125)
+*Published on: Wed, 06 May 2026 11:17:10 GMT*
+
+
+### [2026 LiveLaw (SC) 463 | KISHAN CHAND (DEAD) THROUGH LRS. VERSUS GAUTAM GAUR HITKARAK SABHA, KOTA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-463-kishan-chand-dead-through-lrs-versus-gautam-gaur-hitkarak-sabha-kota-ors-533090)
+*Published on: Wed, 06 May 2026 08:22:15 GMT*
+
+
+### [2026 LiveLaw (SC) 462 | RAJADURAI VERSUS THE STATE OF TAMIL NADU](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-462-rajadurai-versus-the-state-of-tamil-nadu-533066)
+*Published on: Wed, 06 May 2026 06:18:56 GMT*
+
+
+### [2026 LiveLaw (SC) 461 | DR. BAIS SURGICAL AND MEDICAL INSTITUTE PVT. LTD. & ORS. VERSUS DHANANJAY PANDE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-461-dr-bais-surgical-and-medical-institute-pvt-ltd-ors-versus-dhananjay-pande-533049)
+*Published on: Wed, 06 May 2026 05:08:11 GMT*
+
