@@ -1263,3 +1263,18 @@
 ### [2026 LiveLaw (SC) 461 | DR. BAIS SURGICAL AND MEDICAL INSTITUTE PVT. LTD. & ORS. VERSUS DHANANJAY PANDE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-461-dr-bais-surgical-and-medical-institute-pvt-ltd-ors-versus-dhananjay-pande-533049)
 *Published on: Wed, 06 May 2026 05:08:11 GMT*
 
+### [2026 LiveLaw (SC) 470 | SUNIL KUMAR YADAV AND OTHERS VERSUS THE STATE OF JHARKHAND AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-470-sunil-kumar-yadav-and-others-versus-the-state-of-jharkhand-and-others-533318)
+*Published on: Thu, 07 May 2026 14:00:30 GMT*
+
+
+### [2026 LiveLaw (SC) 469 | VADIYALA PRABHAKAR RAO & ORS. VERSUS THE GOVERNMENT OF ANDHRA PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-469-vadiyala-prabhakar-rao-ors-versus-the-government-of-andhra-pradesh-ors-533235)
+*Published on: Thu, 07 May 2026 07:31:31 GMT*
+
+
+### [2026 LiveLaw (SC) 468 |  Hansraj v. Mukesh Nath & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-468-hansraj-v-mukesh-nath-ors-533208)
+*Published on: Thu, 07 May 2026 05:25:47 GMT*
+
+
+### [2026 LiveLaw (SC) 467 | DR. NIGAM PRAKASH NARAIN VS. NATIONAL MEDICAL COMMISSION & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-467-dr-nigam-prakash-narain-vs-national-medical-commission-ors-533202)
+*Published on: Thu, 07 May 2026 05:08:03 GMT*
+
