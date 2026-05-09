@@ -1278,3 +1278,30 @@
 ### [2026 LiveLaw (SC) 467 | DR. NIGAM PRAKASH NARAIN VS. NATIONAL MEDICAL COMMISSION & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-467-dr-nigam-prakash-narain-vs-national-medical-commission-ors-533202)
 *Published on: Thu, 07 May 2026 05:08:03 GMT*
 
+### [2026 LiveLaw (SC) 477 | Anand Narayan Shukla v Jagat Dhari](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-477-anand-narayan-shukla-v-jagat-dhari-533492)
+*Published on: Fri, 08 May 2026 15:18:23 GMT*
+
+
+### [2026 LiveLaw (SC) 476 | INDIAN RAILWAYS VERSUS WEST BENGAL STATE ELECTRICITY DISTRIBUTION COMPANY LIMITED & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-476-indian-railways-versus-west-bengal-state-electricity-distribution-company-limited-ors-533466)
+*Published on: Fri, 08 May 2026 14:17:22 GMT*
+
+
+### [2026 LiveLaw (SC) 475 | Md. ARIZ HASNAIN @ ARIZ HASNAIN VERSUS STATE OF JHARKHAND](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-475-md-ariz-hasnain-ariz-hasnain-versus-state-of-jharkhand-533455)
+*Published on: Fri, 08 May 2026 13:04:22 GMT*
+
+
+### [2026 LiveLaw (SC) 474 | DELHI ELECTRICITY REGULATORY COMMISSION VERSUS TATA POWER DELHI DISTRIBUTION LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-474-delhi-electricity-regulatory-commission-versus-tata-power-delhi-distribution-limited-533405)
+*Published on: Fri, 08 May 2026 08:11:44 GMT*
+
+
+### [2026 LiveLaw (SC) 473 | ARJUN JANI @ TUNTUN VERSUS STATE OF ORISSA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-473-arjun-jani-tuntun-versus-state-of-orissa-533398)
+*Published on: Fri, 08 May 2026 07:06:35 GMT*
+
+
+### [2026 LiveLaw (SC) 472 | In Re : Condition Being Imposed While Granting Bail By High Court Of Orissa and District Courts in the State of Odisha and ancillary issues](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-472-in-re-condition-being-imposed-while-granting-bail-by-high-court-of-orissa-and-district-courts-in-the-state-of-odisha-and-ancillary-issues-533370)
+*Published on: Fri, 08 May 2026 04:54:26 GMT*
+
+
+### [2026 LiveLaw (SC) 471 | R. GANESH VERSUS THE STATE OF TAMIL NADU](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-471-r-ganesh-versus-the-state-of-tamil-nadu-533369)
+*Published on: Fri, 08 May 2026 04:51:52 GMT*
+
