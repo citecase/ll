@@ -1305,3 +1305,10 @@
 ### [2026 LiveLaw (SC) 471 | R. GANESH VERSUS THE STATE OF TAMIL NADU](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-471-r-ganesh-versus-the-state-of-tamil-nadu-533369)
 *Published on: Fri, 08 May 2026 04:51:52 GMT*
 
+### [2026 LiveLaw (SC) 479  | THE STATE OF JHARKHAND & ORS. VERSUS RANJAN KUMAR & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-479-the-state-of-jharkhand-ors-versus-ranjan-kumar-ors-533564)
+*Published on: Sat, 09 May 2026 08:39:41 GMT*
+
+
+### [2026 LiveLaw (SC) 478 |  MANJULA AND OTHERS VERSUS D.A. SRINIVAS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-478-manjula-and-others-versus-da-srinivas-533560)
+*Published on: Sat, 09 May 2026 08:29:45 GMT*
+
