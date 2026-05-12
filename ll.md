@@ -1312,3 +1312,26 @@
 ### [2026 LiveLaw (SC) 478 |  MANJULA AND OTHERS VERSUS D.A. SRINIVAS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-478-manjula-and-others-versus-da-srinivas-533560)
 *Published on: Sat, 09 May 2026 08:29:45 GMT*
 
+### [2026 LiveLaw (SC) 485 | Yatin Narendra Oza v. Suo Motu, High Court of Gujarat and Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-485-yatin-narendra-oza-v-suo-motu-high-court-of-gujarat-and-anr-533807)
+*Published on: Mon, 11 May 2026 16:06:27 GMT*
+
+
+### [2026 LiveLaw (SC) 484 |  GUNJAN @ GIRIJA KUMARI AND OTHERS VERSUS STATE (NCT OF DELHI) AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-484-gunjan-girija-kumari-and-others-versus-state-nct-of-delhi-and-another-533798)
+*Published on: Mon, 11 May 2026 14:37:31 GMT*
+
+
+### [2026 LiveLaw (SC) 483 | SHEIKH ABEDIN VERSUS IQBAL AHMED & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-483-sheikh-abedin-versus-iqbal-ahmed-anr-533796)
+*Published on: Mon, 11 May 2026 14:31:53 GMT*
+
+
+### [2026 LiveLaw (SC) 482 |  PREM PAL SINGH v DISCIPLINARY COMMITTEE OF THE BAR COUNCIL OF INDIA & OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-482-prem-pal-singh-v-disciplinary-committee-of-the-bar-council-of-india-others-533707)
+*Published on: Mon, 11 May 2026 08:06:08 GMT*
+
+
+### [2026 LiveLaw (SC) 481 | DURGAPUR STEEL PLANT & ORS. VERSUS BIDHAN CHANDRA CHOWDHURY & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-481-durgapur-steel-plant-ors-versus-bidhan-chandra-chowdhury-ors-533661)
+*Published on: Mon, 11 May 2026 04:43:08 GMT*
+
+
+### [2026 LiveLaw (SC) 480 | DHANLAXMI BANK LIMITED VERSUS MOHAMMED JAVED SULTAN & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-480-dhanlaxmi-bank-limited-versus-mohammed-javed-sultan-ors-533654)
+*Published on: Mon, 11 May 2026 04:31:19 GMT*
+
