@@ -1335,3 +1335,18 @@
 ### [2026 LiveLaw (SC) 480 | DHANLAXMI BANK LIMITED VERSUS MOHAMMED JAVED SULTAN & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-480-dhanlaxmi-bank-limited-versus-mohammed-javed-sultan-ors-533654)
 *Published on: Mon, 11 May 2026 04:31:19 GMT*
 
+### [2026 LiveLaw (SC) 489 | Ann Saurabh Dutt v. Lieutenant Colonel Saurabh Iqbal Bahadur Dutt](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-489-ann-saurabh-dutt-v-lieutenant-colonel-saurabh-iqbal-bahadur-dutt-533960)
+*Published on: Tue, 12 May 2026 14:39:05 GMT*
+
+
+### [2026 LiveLaw (SC) 488 | COMMISSIONER OF INCOME TAX III VS. M/S. SANAND PROPERTIES PVT. LTD](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-488-commissioner-of-income-tax-iii-vs-ms-sanand-properties-pvt-ltd-533954)
+*Published on: Tue, 12 May 2026 14:02:39 GMT*
+
+
+### [2026 LiveLaw (SC) 487 | Kailash Chandra Kapri v. State of Uttar Pradesh & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-487-kailash-chandra-kapri-v-state-of-uttar-pradesh-ors-533944)
+*Published on: Tue, 12 May 2026 13:49:00 GMT*
+
+
+### [2026 LiveLaw (SC) 486 | MITESH @ T.V. VAGHELA VERSUS THE STATE OF GUJARAT](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-486-mitesh-tv-vaghela-versus-the-state-of-gujarat-533830)
+*Published on: Tue, 12 May 2026 04:41:23 GMT*
+
