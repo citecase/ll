@@ -1350,3 +1350,30 @@
 ### [2026 LiveLaw (SC) 486 | MITESH @ T.V. VAGHELA VERSUS THE STATE OF GUJARAT](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-486-mitesh-tv-vaghela-versus-the-state-of-gujarat-533830)
 *Published on: Tue, 12 May 2026 04:41:23 GMT*
 
+### [2026 LiveLaw (SC) 496 | TALARI NARESH VERSUS THE STATE OF TELANGANA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-496-talari-naresh-versus-the-state-of-telangana-534124)
+*Published on: Wed, 13 May 2026 14:48:22 GMT*
+
+
+### [2026 LiveLaw (SC) 495 |  LOKENDRA KUMAR TIWARI VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-495-lokendra-kumar-tiwari-versus-union-of-india-and-others-534118)
+*Published on: Wed, 13 May 2026 14:33:10 GMT*
+
+
+### [2026 LiveLaw (SC) 494 | Project Director, National Highways Authority of India versus Alfa Remidis Ltd. and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-494-project-director-national-highways-authority-of-india-versus-alfa-remidis-ltd-and-others-534077)
+*Published on: Wed, 13 May 2026 11:19:15 GMT*
+
+
+### [2026 LiveLaw (SC) 493 | Shrikant Ojha v State of UP and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-493-shrikant-ojha-v-state-of-up-and-others-534059)
+*Published on: Wed, 13 May 2026 09:59:56 GMT*
+
+
+### [2026 LiveLaw (SC) 492 | PADAM MEHTA AND ANR. Versus THE STATE OF RAJASTHAN AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-492-padam-mehta-and-anr-versus-the-state-of-rajasthan-and-ors-534010)
+*Published on: Wed, 13 May 2026 07:00:45 GMT*
+
+
+### [2026 LiveLaw (SC) 491 | Angelwoods Apartment Allottees Association versus M Lalitha and another](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-491-angelwoods-apartment-allottees-association-versus-m-lalitha-and-another-534001)
+*Published on: Wed, 13 May 2026 04:53:10 GMT*
+
+
+### [2026 LiveLaw (SC) 490 |  FAKIR MAMAD SULEMAN SAMEJA AND ORS. VERSUS ADANI PORTS AND SPECIAL ECONOMIC ZONES LTD. AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-490-fakir-mamad-suleman-sameja-and-ors-versus-adani-ports-and-special-economic-zones-ltd-and-ors-533991)
+*Published on: Wed, 13 May 2026 04:33:02 GMT*
+
