@@ -1377,3 +1377,6 @@
 ### [2026 LiveLaw (SC) 490 |  FAKIR MAMAD SULEMAN SAMEJA AND ORS. VERSUS ADANI PORTS AND SPECIAL ECONOMIC ZONES LTD. AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-490-fakir-mamad-suleman-sameja-and-ors-versus-adani-ports-and-special-economic-zones-ltd-and-ors-533991)
 *Published on: Wed, 13 May 2026 04:33:02 GMT*
 
+### [2026 LiveLaw (SC) 497 | CANARA BANK VERSUS PREM LATHA UPPAL (DEAD) THROUGH LRS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-497-canara-bank-versus-prem-latha-uppal-dead-through-lrs-534258)
+*Published on: Thu, 14 May 2026 14:17:46 GMT*
+
