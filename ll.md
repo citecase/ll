@@ -1399,3 +1399,14 @@
 ### [2026 LiveLaw (SC) 498 | SOUMYA RANJAN PANDA & ORS. VERSUS SUBHALAXMI DASH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-498-soumya-ranjan-panda-ors-versus-subhalaxmi-dash-ors-534287)
 *Published on: Fri, 15 May 2026 05:20:43 GMT*
 
+### [2026 LiveLaw (SC) 505  | B. YERRAJI & ORS. VERUS THE STATE OF ANDHRA PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-505-b-yerraji-ors-verus-the-state-of-andhra-pradesh-ors-534465)
+*Published on: Sat, 16 May 2026 12:02:32 GMT*
+
+
+### [2026 LiveLaw (SC) 504 | New India Assurance Company v Dolly Satish Gandhi and another](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-504-new-india-assurance-company-v-dolly-satish-gandhi-and-another-534459)
+*Published on: Sat, 16 May 2026 12:25:57 GMT*
+
+
+### [2026 LiveLaw (SC) 503 |  MARIETTA D' SILVA VERSUS RUDOLF CLOTHAN LACERDA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-503-marietta-d-silva-versus-rudolf-clothan-lacerda-ors-534456)
+*Published on: Sat, 16 May 2026 10:58:15 GMT*
+
