@@ -1410,3 +1410,26 @@
 ### [2026 LiveLaw (SC) 503 |  MARIETTA D' SILVA VERSUS RUDOLF CLOTHAN LACERDA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-503-marietta-d-silva-versus-rudolf-clothan-lacerda-ors-534456)
 *Published on: Sat, 16 May 2026 10:58:15 GMT*
 
+### [2026 LiveLaw (SC) 511 | ALL INDIA INSTITUTE OF MEDICAL SCIENCES v. SHAILENDRA BHATNAGAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-511-all-india-institute-of-medical-sciences-v-shailendra-bhatnagar-534517)
+*Published on: Sun, 17 May 2026 13:12:01 GMT*
+
+
+### [2026 LiveLaw (SC) 510 | VIDYAWANT v. THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-510-vidyawant-v-the-state-of-maharashtra-534516)
+*Published on: Sun, 17 May 2026 13:08:56 GMT*
+
+
+### [2026 LiveLaw (SC) 509 | DHARMENDRA KALRA & ORS. VERSUS KULVINDER SINGH BHATIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-509-dharmendra-kalra-ors-versus-kulvinder-singh-bhatia-534515)
+*Published on: Sun, 17 May 2026 13:06:36 GMT*
+
+
+### [2026 LiveLaw (SC) 508 | C. POORNA CHANDRAN VERSUS THE GOVERNMENT OF TAMIL NADU & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-508-c-poorna-chandran-versus-the-government-of-tamil-nadu-ors-534512)
+*Published on: Sun, 17 May 2026 12:50:34 GMT*
+
+
+### [2026 LiveLaw (SC) 507 | ALKA AGRAWAL AND OTHERS VERSUS STATE OF MAHARASHTRA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-507-alka-agrawal-and-others-versus-state-of-maharashtra-and-others-534500)
+*Published on: Sun, 17 May 2026 06:25:27 GMT*
+
+
+### [2026 LiveLaw (SC) 506 | B.S. LALITHA AND OTHERS VERSUS BHUVANESH AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-506-bs-lalitha-and-others-versus-bhuvanesh-and-others-534497)
+*Published on: Sun, 17 May 2026 05:36:21 GMT*
+
