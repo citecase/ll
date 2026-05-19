@@ -1433,3 +1433,14 @@
 ### [2026 LiveLaw (SC) 506 | B.S. LALITHA AND OTHERS VERSUS BHUVANESH AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-506-bs-lalitha-and-others-versus-bhuvanesh-and-others-534497)
 *Published on: Sun, 17 May 2026 05:36:21 GMT*
 
+### [2026 LiveLaw (SC) 513 | JENNIFER MESSIAS VERSUS LEONARD G LOBO](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-513-jennifer-messias-versus-leonard-g-lobo-534692)
+*Published on: Mon, 18 May 2026 14:17:46 GMT*
+
+
+### [2026 LiveLaw (SC) 512 | Syed Iftikhar Andrabi v. National Investigation Agency, Jammu](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-512-syed-iftikhar-andrabi-v-national-investigation-agency-jammu-534687)
+*Published on: Mon, 18 May 2026 14:07:45 GMT*
+
+
+### [2026 LiveLaw (SC) 512 | NARAYANA HEALTH & ORS. VERSUS THE STATE OF WEST BENGAL & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-512-narayana-health-ors-versus-the-state-of-west-bengal-ors-534555)
+*Published on: Mon, 18 May 2026 04:41:43 GMT*
+
