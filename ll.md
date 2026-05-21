@@ -1455,3 +1455,18 @@
 ### [2026 LiveLaw (SC) 514 | STATE OF ODISHA & ORS. VERSUS SREEPATI RANJAN DASH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-514-state-of-odisha-ors-versus-sreepati-ranjan-dash-534772)
 *Published on: Tue, 19 May 2026 07:50:55 GMT*
 
+### [2026 LiveLaw (SC) 520 | Vasantha versus State of Tamil Nadu and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-520-vasantha-versus-state-of-tamil-nadu-and-others-534928)
+*Published on: Wed, 20 May 2026 07:40:09 GMT*
+
+
+### [2026 LiveLaw (SC) 519 | THE STATE OF TAMIL NADU v PONNUSAMY AND ORS|](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-519-the-state-of-tamil-nadu-v-ponnusamy-and-ors-534902)
+*Published on: Wed, 20 May 2026 05:26:42 GMT*
+
+
+### [2026 LiveLaw (SC) 518 | SUSANTA KUMAR DALEI @SUSANTA KUMAR DALAI VERSUS STATE OF ODISHA (VIGILANCE)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-518-susanta-kumar-dalei-susanta-kumar-dalai-versus-state-of-odisha-vigilance-534900)
+*Published on: Wed, 20 May 2026 05:14:22 GMT*
+
+
+### [2026 LiveLaw (SC) 517 | DR. MANOJ KUMAR RAWAT VERSUS STATE OF UP & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-517-dr-manoj-kumar-rawat-versus-state-of-up-ors-534898)
+*Published on: Wed, 20 May 2026 05:00:50 GMT*
+
