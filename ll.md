@@ -1512,3 +1512,18 @@
 ### [2026 LiveLaw (SC) 528 | PARVATHI NAIRTHI (DEAD) AND ORS. VERSUS LAXMI NAIRTHY (DEAD) THROUGH LRS. AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-528-parvathi-nairthi-dead-and-ors-versus-laxmi-nairthy-dead-through-lrs-and-ors-535239)
 *Published on: Fri, 22 May 2026 04:45:53 GMT*
 
+### [2026 LiveLaw (SC) 535 | BHAGAT SINGH VERSUS THE STATE OF UTTAR PRADESH AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-535-bhagat-singh-versus-the-state-of-uttar-pradesh-and-anr-535413)
+*Published on: Sat, 23 May 2026 07:19:55 GMT*
+
+
+### [2026 LiveLaw (SC) 534 | Mallika v. R. Nallathambi & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-534-mallika-v-r-nallathambi-ors-535410)
+*Published on: Sat, 23 May 2026 07:07:05 GMT*
+
+
+### [2026 LiveLaw (SC) 533 | TASLEEM AHMED v STATE GOVT. OF NCT OF DELH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-533-tasleem-ahmed-v-state-govt-of-nct-of-delh-535393)
+*Published on: Sat, 23 May 2026 05:09:33 GMT*
+
+
+### [2026 LiveLaw (SC) 532 |  Papan Sarkar @ Pranab Versus State of West Bengal](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-532-papan-sarkar-pranab-versus-state-of-west-bengal-535391)
+*Published on: Sat, 23 May 2026 05:06:38 GMT*
+
