@@ -1527,3 +1527,18 @@
 ### [2026 LiveLaw (SC) 532 |  Papan Sarkar @ Pranab Versus State of West Bengal](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-532-papan-sarkar-pranab-versus-state-of-west-bengal-535391)
 *Published on: Sat, 23 May 2026 05:06:38 GMT*
 
+### [2026 LiveLaw (SC) 539  |  ARTI MEHTA & ORS. VERSUS THE STATE OF MADHYA PRADESH & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-539-arti-mehta-ors-versus-the-state-of-madhya-pradesh-anr-535640)
+*Published on: Mon, 25 May 2026 15:27:03 GMT*
+
+
+### [2026 LiveLaw (SC) 538 | Gour Acharjee Versus The State of Tripura & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-538-gour-acharjee-versus-the-state-of-tripura-ors-535623)
+*Published on: Mon, 25 May 2026 13:42:23 GMT*
+
+
+### [2026 LiveLaw (SC) 537 | ROSHAN LAL VERSUS THE STATE OF HARYANA & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-537-roshan-lal-versus-the-state-of-haryana-anr-535574)
+*Published on: Mon, 25 May 2026 09:46:12 GMT*
+
+
+### [2026 LiveLaw (SC) 536 | MOHSEEN VERSUS THE STATE OF UTTAR PRADESH & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-536-mohseen-versus-the-state-of-uttar-pradesh-anr-535572)
+*Published on: Mon, 25 May 2026 09:38:07 GMT*
+
