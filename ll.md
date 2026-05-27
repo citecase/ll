@@ -1542,3 +1542,26 @@
 ### [2026 LiveLaw (SC) 536 | MOHSEEN VERSUS THE STATE OF UTTAR PRADESH & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-536-mohseen-versus-the-state-of-uttar-pradesh-anr-535572)
 *Published on: Mon, 25 May 2026 09:38:07 GMT*
 
+### [2026 LiveLaw (SC) 545 | VICKKI YADAV @ VIKAS YADAV v. STATE OF UTTAR PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-545-vickki-yadav-vikas-yadav-v-state-of-uttar-pradesh-535813)
+*Published on: Tue, 26 May 2026 15:13:18 GMT*
+
+
+### [2026 LiveLaw (SC) 544 |  COMMISSIONER OF CUSTOMS, KANDLA, GUJARAT VERSUS M/S RELIANCE INDUSTRIES LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-544-commissioner-of-customs-kandla-gujarat-versus-ms-reliance-industries-limited-535781)
+*Published on: Tue, 26 May 2026 12:52:19 GMT*
+
+
+### [2026 LiveLaw (SC) 543 | PAWAN KUMAR SHARMA VERSUS MANOJ KUMAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-543-pawan-kumar-sharma-versus-manoj-kumar-ors-535742)
+*Published on: Tue, 26 May 2026 09:53:28 GMT*
+
+
+### [2026 LiveLaw (SC) 542 |  BAI AVABAI HORMUSJI TATA TRUST VERSUS SHERNAZ FAROUKH LAWYER & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-542-bai-avabai-hormusji-tata-trust-versus-shernaz-faroukh-lawyer-ors-535739)
+*Published on: Tue, 26 May 2026 09:44:30 GMT*
+
+
+### [2026 LiveLaw (SC) 541 | State of Himachal Pradesh & Ors. v. M/s Kundlas Loh Udyog](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-541-state-of-himachal-pradesh-ors-v-ms-kundlas-loh-udyog-535690)
+*Published on: Tue, 26 May 2026 05:51:38 GMT*
+
+
+### [2026 LiveLaw (SC) 540 | SUPRIYA KUMARI M.C. VERSUS STATE OF KERALA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-540-supriya-kumari-mc-versus-state-of-kerala-ors-535683)
+*Published on: Tue, 26 May 2026 05:22:56 GMT*
+
