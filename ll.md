@@ -1565,3 +1565,26 @@
 ### [2026 LiveLaw (SC) 540 | SUPRIYA KUMARI M.C. VERSUS STATE OF KERALA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-540-supriya-kumari-mc-versus-state-of-kerala-ors-535683)
 *Published on: Tue, 26 May 2026 05:22:56 GMT*
 
+### [2026 LiveLaw (SC) 553 |  AMAZON.COM NV INVESTMENT HOLDINGS LLC VERSUS COMPETITION COMMISSION OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-553-amazoncom-nv-investment-holdings-llc-versus-competition-commission-of-india-ors-535961)
+*Published on: Wed, 27 May 2026 14:42:16 GMT*
+
+
+### [2026 LiveLaw (SC) 550 | ABDUR RAHMAN VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-550-abdur-rahman-versus-union-of-india-ors-535922)
+*Published on: Wed, 27 May 2026 11:16:12 GMT*
+
+
+### [2026 LiveLaw (SC) 549 | ASSOCIATION FOR DEMOCRATIC REFORMS AND ORS. Versus ELECTION COMMISSION OF INDIA (SIR)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-549-association-for-democratic-reforms-and-ors-versus-election-commission-of-india-sir-535886)
+*Published on: Wed, 27 May 2026 07:48:02 GMT*
+
+
+### [2026 LiveLaw (SC) 548 | Munna Moyuddin Shaikh Versus State of Gujarat](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-548-munna-moyuddin-shaikh-versus-state-of-gujarat-535873)
+*Published on: Wed, 27 May 2026 06:37:31 GMT*
+
+
+### [2026 LiveLaw (SC) 547 | GUJARAT WATER SUPPLY AND SEWERAGE BOARD VERSUS SARYU PLASTICS PVT. LTD](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-547-gujarat-water-supply-and-sewerage-board-versus-saryu-plastics-pvt-ltd-535833)
+*Published on: Wed, 27 May 2026 04:32:26 GMT*
+
+
+### [2026 LiveLaw (SC) 546 | Mukesh Kumar Yadav Versus The State (UT of Andaman & Nicobar Islands) Etc](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-546-mukesh-kumar-yadav-versus-the-state-ut-of-andaman-nicobar-islands-etc-535826)
+*Published on: Wed, 27 May 2026 04:21:03 GMT*
+
