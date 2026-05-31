@@ -1658,3 +1658,30 @@
 ### [2026 LiveLaw (SC) 562 | SANJAY DAVE Vs. ANDHRA BANK LTD. & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-562-sanjay-dave-vs-andhra-bank-ltd-ors-536080)
 *Published on: Fri, 29 May 2026 04:12:35 GMT*
 
+### [2026 LiveLaw (SC) 574 |  PRAJWALA Versus UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-574-prajwala-versus-union-of-india-536328)
+*Published on: Sun, 31 May 2026 03:10:10 GMT*
+
+
+### [2026 LiveLaw (SC) 573 | A. JOHN KENNEDY AND OTHERS VERSUS STATE OF TAMIL NADU AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-573-a-john-kennedy-and-others-versus-state-of-tamil-nadu-and-others-536314)
+*Published on: Sat, 30 May 2026 13:49:39 GMT*
+
+
+### [2026 LiveLaw (SC) 572 | DIRECTORATE GENERAL OF GOODS AND SERVICES TAX INTELLIGENCE HQS Vs GAMESKRAFT TECHNOLOGIES PRIVATE LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-572-directorate-general-of-goods-and-services-tax-intelligence-hqs-vs-gameskraft-technologies-private-limited-536279)
+*Published on: Sat, 30 May 2026 09:19:56 GMT*
+
+
+### [2026 LiveLaw (SC) 571| Pila Pahan@Peela Pahan and Ors. v. State of Jharkhand and Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-571-pila-pahanpeela-pahan-and-ors-v-state-of-jharkhand-and-anr-536270)
+*Published on: Sat, 30 May 2026 09:00:01 GMT*
+
+
+### [2026 LiveLaw (SC) 570 | ASHOK AND ORS. VERSUS PADAM CHAND AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-570-ashok-and-ors-versus-padam-chand-and-ors-536267)
+*Published on: Sat, 30 May 2026 08:36:58 GMT*
+
+
+### [2026 LiveLaw (SC) 569 | SMALL SCALE ENTERPRENEURS ASSOCIATION & ORS. VERSUS THE STATE OF MAHARASHTRA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-569-small-scale-enterpreneurs-association-ors-versus-the-state-of-maharashtra-ors-536265)
+*Published on: Sat, 30 May 2026 08:32:15 GMT*
+
+
+### [2026 LiveLaw (SC) 569 | Arjun Dass v State of Andhra Pradesh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-569-arjun-dass-v-state-of-andhra-pradesh-536247)
+*Published on: Sat, 30 May 2026 05:20:21 GMT*
+
