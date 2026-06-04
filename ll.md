@@ -1747,3 +1747,22 @@
 ### [2026 LiveLaw (SC) 582 | BHIKHANI DEVI AND ETC. VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-582-bhikhani-devi-and-etc-versus-union-of-india-and-others-536514)
 *Published on: Tue, 02 Jun 2026 05:45:29 GMT*
 
+### [2026 LiveLaw (SC) 595 |  GENERAL MANAGER (HR) & ANR VERSUS K. POOVARASAN](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-595-general-manager-hr-anr-versus-k-poovarasan-536744)
+*Published on: Wed, 03 Jun 2026 16:03:53 GMT*
+
+
+### [2026 LiveLaw (SC) 594 | SONAL TALPADA v. VEERBHAN SINGH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-594-sonal-talpada-v-veerbhan-singh-536743)
+*Published on: Wed, 03 Jun 2026 16:00:59 GMT*
+
+
+### [2026 LiveLaw (SC) 593 | BHIKHUBHAI GOVINDBHAI PATEL & ANR. VERSUS THE STATE OF GUJARAT & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-593-bhikhubhai-govindbhai-patel-anr-versus-the-state-of-gujarat-anr-536661)
+*Published on: Wed, 03 Jun 2026 07:05:22 GMT*
+
+
+### [2026 LiveLaw (SC) 592 | The State of Maharashtra v. Rahul Datta Bhosale & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-592-the-state-of-maharashtra-v-rahul-datta-bhosale-ors-536656)
+*Published on: Wed, 03 Jun 2026 06:40:15 GMT*
+
+
+### [2026 LiveLaw (SC) 591 | State of Tamil Nadu & Ors. v. Junglee Games India Pvt. Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-591-state-of-tamil-nadu-ors-v-junglee-games-india-pvt-ltd-536647)
+*Published on: Wed, 03 Jun 2026 09:19:16 GMT*
+
