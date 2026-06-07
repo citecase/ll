@@ -1792,3 +1792,10 @@
 ### [2026 LiveLaw (SC) 600 | THE DIRECTOR OF MINES AND GEOLOGY VERSUS M/s BMM ISPAT LTD & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-600-the-director-of-mines-and-geology-versus-ms-bmm-ispat-ltd-anr-536871)
 *Published on: Fri, 05 Jun 2026 04:18:27 GMT*
 
+### [2026 LiveLaw (SC) 604 | A. SHAHUL HAMEED Versus N. MALLIGARJUNA AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-604-a-shahul-hameed-versus-n-malligarjuna-and-ors-537062)
+*Published on: Sat, 06 Jun 2026 12:50:45 GMT*
+
+
+### [2026 LiveLaw (SC) 603 | SEESA SANTOSH VERSUS THE STATE OF TELANGANA AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-603-seesa-santosh-versus-the-state-of-telangana-and-anr-537061)
+*Published on: Sat, 06 Jun 2026 12:48:38 GMT*
+
