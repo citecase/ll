@@ -1799,3 +1799,6 @@
 ### [2026 LiveLaw (SC) 603 | SEESA SANTOSH VERSUS THE STATE OF TELANGANA AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-603-seesa-santosh-versus-the-state-of-telangana-and-anr-537061)
 *Published on: Sat, 06 Jun 2026 12:48:38 GMT*
 
+### [2026 LiveLaw (SC) 605 |  K RANGANAYAKULU VERSUS STATE OF TELANGANA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-605-k-ranganayakulu-versus-state-of-telangana-ors-537088)
+*Published on: Sun, 07 Jun 2026 08:23:30 GMT*
+
