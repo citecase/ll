@@ -1802,3 +1802,6 @@
 ### [2026 LiveLaw (SC) 605 |  K RANGANAYAKULU VERSUS STATE OF TELANGANA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-605-k-ranganayakulu-versus-state-of-telangana-ors-537088)
 *Published on: Sun, 07 Jun 2026 08:23:30 GMT*
 
+### [2026 LiveLaw (SC) 606 | Gajula Thirupathi v. Telangana State Level Police Recruitment Board & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-606-gajula-thirupathi-v-telangana-state-level-police-recruitment-board-ors-537125)
+*Published on: Mon, 08 Jun 2026 05:35:59 GMT*
+
