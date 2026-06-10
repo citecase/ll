@@ -1805,3 +1805,18 @@
 ### [2026 LiveLaw (SC) 606 | Gajula Thirupathi v. Telangana State Level Police Recruitment Board & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-606-gajula-thirupathi-v-telangana-state-level-police-recruitment-board-ors-537125)
 *Published on: Mon, 08 Jun 2026 05:35:59 GMT*
 
+### [2026 LiveLaw (SC) 610 | PUSHPA & ORS. versus DAYAWATI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-610-pushpa-ors-versus-dayawati-ors-537331)
+*Published on: Tue, 09 Jun 2026 15:37:18 GMT*
+
+
+### [2026 LiveLaw (SC) 609 | GOPI CHAND @ PAPPU VERSUS STATE (NCT OF DELHI)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-609-gopi-chand-pappu-versus-state-nct-of-delhi-537280)
+*Published on: Tue, 09 Jun 2026 08:52:19 GMT*
+
+
+### [2026 LiveLaw (SC) 608 | NAZIBUL RAHIM KHAN & ORS. VERSUS STATE OF UTTAR PRADESH & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-608-nazibul-rahim-khan-ors-versus-state-of-uttar-pradesh-anr-537257)
+*Published on: Tue, 09 Jun 2026 06:09:22 GMT*
+
+
+### [2026 LiveLaw (SC) 607 | UPERNDRA KHARE VERSUS THE STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-607-uperndra-khare-versus-the-state-of-madhya-pradesh-537248)
+*Published on: Tue, 09 Jun 2026 05:33:12 GMT*
+
