@@ -1820,3 +1820,22 @@
 ### [2026 LiveLaw (SC) 607 | UPERNDRA KHARE VERSUS THE STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-607-uperndra-khare-versus-the-state-of-madhya-pradesh-537248)
 *Published on: Tue, 09 Jun 2026 05:33:12 GMT*
 
+### [2026 LiveLaw (SC) | Dr. Rakesh Kumar Gupta v. State of Uttar Pradesh & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-dr-rakesh-kumar-gupta-v-state-of-uttar-pradesh-ors-537446)
+*Published on: Wed, 10 Jun 2026 14:34:01 GMT*
+
+
+### [2026 LiveLaw (SC) 614 | MARUTHUPANDI v STATE REPRESENTED BY THE INSPECTOR OF POLICE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-614-maruthupandi-v-state-represented-by-the-inspector-of-police-537412)
+*Published on: Wed, 10 Jun 2026 11:17:59 GMT*
+
+
+### [2026 LiveLaw (SC) 613 | MR Vasumathi v The Authorized Officer](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-613-mr-vasumathi-v-the-authorized-officer-537408)
+*Published on: Wed, 10 Jun 2026 11:08:55 GMT*
+
+
+### [2026 LiveLaw (SC) 612 | CHATURBHUJ PRADHAN v AMAR PRADHAN & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-612-chaturbhuj-pradhan-v-amar-pradhan-anr-537354)
+*Published on: Wed, 10 Jun 2026 05:46:08 GMT*
+
+
+### [2026 LiveLaw (SC) 611 | CA RAMCHANDRA DALLARAM CHOUDHARY v. ADANI INFRASTRUCTURE AND DEVELOPERS PRIVATE LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-611-ca-ramchandra-dallaram-choudhary-v-adani-infrastructure-and-developers-private-limited-537350)
+*Published on: Wed, 10 Jun 2026 05:27:13 GMT*
+
