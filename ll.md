@@ -1839,3 +1839,22 @@
 ### [2026 LiveLaw (SC) 611 | CA RAMCHANDRA DALLARAM CHOUDHARY v. ADANI INFRASTRUCTURE AND DEVELOPERS PRIVATE LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-611-ca-ramchandra-dallaram-choudhary-v-adani-infrastructure-and-developers-private-limited-537350)
 *Published on: Wed, 10 Jun 2026 05:27:13 GMT*
 
+### [2026 LiveLaw (SC) 620 | JAYESH KANNA v THE ASSISTANT COMMISSIONER LAW AND ORDER (WEST)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-620-jayesh-kanna-v-the-assistant-commissioner-law-and-order-west-537580)
+*Published on: Fri, 12 Jun 2026 03:33:54 GMT*
+
+
+### [2026 LiveLaw (SC) 619 |  Dr. Ramesh v. State of Maharashtra & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-619-dr-ramesh-v-state-of-maharashtra-anr-537538)
+*Published on: Thu, 11 Jun 2026 12:29:53 GMT*
+
+
+### [2026 LiveLaw (SC) 618 | Sheetal Vasant Thakur v. Chirag Arora](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-618-sheetal-vasant-thakur-v-chirag-arora-537531)
+*Published on: Thu, 11 Jun 2026 16:19:33 GMT*
+
+
+### [2026 LiveLaw (SC) 617  | SHISHUPAL @ SHISH RAM AND ORS. v. SURJEET AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-617-shishupal-shish-ram-and-ors-v-surjeet-and-ors-537511)
+*Published on: Thu, 11 Jun 2026 14:11:53 GMT*
+
+
+### [2026 LiveLaw (SC) 616 | Baksish Ahmad v. Union of India & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-616-baksish-ahmad-v-union-of-india-anr-537478)
+*Published on: Thu, 11 Jun 2026 05:04:11 GMT*
+
