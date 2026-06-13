@@ -1858,3 +1858,14 @@
 ### [2026 LiveLaw (SC) 616 | Baksish Ahmad v. Union of India & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-616-baksish-ahmad-v-union-of-india-anr-537478)
 *Published on: Thu, 11 Jun 2026 05:04:11 GMT*
 
+### [2026 LiveLaw (SC) 623 | HIGH COURT OF UTTARAKHAND AT NAINITAL Vs DEEPALI SHARMA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-623-high-court-of-uttarakhand-at-nainital-vs-deepali-sharma-537622)
+*Published on: Fri, 12 Jun 2026 06:06:17 GMT*
+
+
+### [2026 LiveLaw (SC) 622 | DHIRAJ DUTTA VERSUS ANIRBAN SEN & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-622-dhiraj-dutta-versus-anirban-sen-ors-537619)
+*Published on: Fri, 12 Jun 2026 06:03:02 GMT*
+
+
+### [2026 LiveLaw (SC) 621 | The Commissioner, Bruhat Bangalore Mahanagara Palike v. K.K. Umesh Kumar & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-621-the-commissioner-bruhat-bangalore-mahanagara-palike-v-kk-umesh-kumar-ors-537596)
+*Published on: Fri, 12 Jun 2026 04:53:10 GMT*
+
