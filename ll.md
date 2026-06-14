@@ -1869,3 +1869,10 @@
 ### [2026 LiveLaw (SC) 621 | The Commissioner, Bruhat Bangalore Mahanagara Palike v. K.K. Umesh Kumar & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-621-the-commissioner-bruhat-bangalore-mahanagara-palike-v-kk-umesh-kumar-ors-537596)
 *Published on: Fri, 12 Jun 2026 04:53:10 GMT*
 
+### [2026 LiveLaw (SC) 625 | Jayakrishna Menon v. Krishnankutty & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-625-jayakrishna-menon-v-krishnankutty-ors-537755)
+*Published on: Sat, 13 Jun 2026 11:19:37 GMT*
+
+
+### [2026 LiveLaw (SC) 624 | SUREKHA DOMAJI BELE v EXECUTIVE ENGINEER, TESTING DIVISION, MSEDCL|](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-624-surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-537752)
+*Published on: Sat, 13 Jun 2026 11:03:54 GMT*
+
