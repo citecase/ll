@@ -1876,3 +1876,18 @@
 ### [2026 LiveLaw (SC) 624 | SUREKHA DOMAJI BELE v EXECUTIVE ENGINEER, TESTING DIVISION, MSEDCL|](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-624-surekha-domaji-bele-v-executive-engineer-testing-division-msedcl-537752)
 *Published on: Sat, 13 Jun 2026 11:03:54 GMT*
 
+### [2026 LiveLaw (SC) 629 | Special Police Establishment v. Kamta Prasad Mishra & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-629-special-police-establishment-v-kamta-prasad-mishra-ors-537888)
+*Published on: Mon, 15 Jun 2026 15:47:48 GMT*
+
+
+### [2026 LiveLaw (SC) 628 | Gaurav Mehla & Ors. v. State of Haryana & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-628-gaurav-mehla-ors-v-state-of-haryana-ors-537805)
+*Published on: Mon, 15 Jun 2026 06:06:20 GMT*
+
+
+### [2026 LiveLaw (SC) 627 | MEENAKSHI NATARAJAN Vs ELECTION COMMISSION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-627-meenakshi-natarajan-vs-election-commission-of-india-537800)
+*Published on: Mon, 15 Jun 2026 05:52:59 GMT*
+
+
+### [2026 LiveLaw (SC) 626 | Makardhwaj Ram v. Jagdish Rai (Dead) Th. Lrs. & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-626-makardhwaj-ram-v-jagdish-rai-dead-th-lrs-anr-537798)
+*Published on: Mon, 15 Jun 2026 05:49:38 GMT*
+
