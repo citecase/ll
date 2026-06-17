@@ -1891,3 +1891,6 @@
 ### [2026 LiveLaw (SC) 626 | Makardhwaj Ram v. Jagdish Rai (Dead) Th. Lrs. & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-626-makardhwaj-ram-v-jagdish-rai-dead-th-lrs-anr-537798)
 *Published on: Mon, 15 Jun 2026 05:49:38 GMT*
 
+### [2026 LiveLaw (SC) 630 | Atul Chauhan v. State of Haryana & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-630-atul-chauhan-v-state-of-haryana-ors-537908)
+*Published on: Tue, 16 Jun 2026 05:14:03 GMT*
+
