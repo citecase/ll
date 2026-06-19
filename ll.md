@@ -1894,3 +1894,6 @@
 ### [2026 LiveLaw (SC) 630 | Atul Chauhan v. State of Haryana & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-630-atul-chauhan-v-state-of-haryana-ors-537908)
 *Published on: Tue, 16 Jun 2026 05:14:03 GMT*
 
+### [2026 LiveLaw (SC) 631  |  S. SENTHIL KUMARAN BOSE v. THE STATE OF TAMIL NAlDU AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-631-s-senthil-kumaran-bose-v-the-state-of-tamil-naldu-and-others-538175)
+*Published on: Thu, 18 Jun 2026 05:40:16 GMT*
+
