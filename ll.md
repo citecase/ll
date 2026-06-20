@@ -1897,3 +1897,6 @@
 ### [2026 LiveLaw (SC) 631  |  S. SENTHIL KUMARAN BOSE v. THE STATE OF TAMIL NAlDU AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-631-s-senthil-kumaran-bose-v-the-state-of-tamil-naldu-and-others-538175)
 *Published on: Thu, 18 Jun 2026 05:40:16 GMT*
 
+### [2026 LiveLaw (SC) 632 | MANIYAR ILIYAZ SHAIK RIYAZ Vs P. AYYAPPAN](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-632-maniyar-iliyaz-shaik-riyaz-vs-p-ayyappan-538358)
+*Published on: Fri, 19 Jun 2026 09:29:29 GMT*
+
