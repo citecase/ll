@@ -1918,3 +1918,6 @@
 ### [2026 LiveLaw (SC) 636 | M/S RIFILIS ENGINEERING PVT. LTD. VS. ARJUN GUPTA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-636-ms-rifilis-engineering-pvt-ltd-vs-arjun-gupta-538531)
 *Published on: Mon, 22 Jun 2026 05:32:45 GMT*
 
+### [2026 LiveLaw (SC) 638 | MOHAMMED KHALEEL (D) THROUGH LRs & ORS. VERSUS JAYAMMA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-mohammed-khaleel-d-through-lrs-ors-versus-jayamma-538720)
+*Published on: Tue, 23 Jun 2026 13:00:21 GMT*
+
