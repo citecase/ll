@@ -1921,3 +1921,22 @@
 ### [2026 LiveLaw (SC) 638 | MOHAMMED KHALEEL (D) THROUGH LRs & ORS. VERSUS JAYAMMA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-mohammed-khaleel-d-through-lrs-ors-versus-jayamma-538720)
 *Published on: Tue, 23 Jun 2026 13:00:21 GMT*
 
+### [2026 LiveLaw (SC) 643 | The Oriental Insurance Co Ltd v Kalu Ram](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-643-the-oriental-insurance-co-ltd-v-kalu-ram-538815)
+*Published on: Wed, 24 Jun 2026 10:29:30 GMT*
+
+
+### [2026 LiveLaw (SC) 642 | Sarafat Ali (Dead) Through LRs & Ors. v. Deputy Director of Consolidation, Haridwar & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-642-sarafat-ali-dead-through-lrs-ors-v-deputy-director-of-consolidation-haridwar-ors-538806)
+*Published on: Wed, 24 Jun 2026 09:36:43 GMT*
+
+
+### [2026 LiveLaw (SC) 641 | M. Paramesh v. VRL Logistics Ltd. & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-641-m-paramesh-v-vrl-logistics-ltd-anr-538793)
+*Published on: Wed, 24 Jun 2026 07:45:42 GMT*
+
+
+### [2026 LiveLaw (SC) 640 | RAJESH SHARMA v NORTH DELHI MUNICIPAL CORPORATION AND ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-639-rajesh-sharma-v-north-delhi-municipal-corporation-and-anr-538791)
+*Published on: Wed, 24 Jun 2026 07:39:20 GMT*
+
+
+### [2026 LiveLaw (SC) 639 | ISRAFIL @ PAPPU @ NAIMUDDIN KHAN VERSUS STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-israfil-pappu-naimuddin-khan-versus-state-of-madhya-pradesh-538774)
+*Published on: Wed, 24 Jun 2026 07:39:39 GMT*
+
