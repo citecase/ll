@@ -1940,3 +1940,18 @@
 ### [2026 LiveLaw (SC) 639 | ISRAFIL @ PAPPU @ NAIMUDDIN KHAN VERSUS STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-638-israfil-pappu-naimuddin-khan-versus-state-of-madhya-pradesh-538774)
 *Published on: Wed, 24 Jun 2026 07:39:39 GMT*
 
+### [2026 LiveLaw (SC) 647 | State of Madhya Pradesh v. Ravi Shankar Singh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-647-state-of-madhya-pradesh-v-ravi-shankar-singh-539359)
+*Published on: Tue, 30 Jun 2026 12:23:53 GMT*
+
+
+### [2026 LiveLaw (SC) 646 |  SHAHEEN MALIK Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-646-shaheen-malik-vs-union-of-india-539357)
+*Published on: Tue, 30 Jun 2026 12:18:31 GMT*
+
+
+### [2026 LiveLaw (SC) 645 | JITTU YADAV VERSUS STATE OF CHHATTISGARH & OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-645-jittu-yadav-versus-state-of-chhattisgarh-others-539333)
+*Published on: Tue, 30 Jun 2026 09:27:02 GMT*
+
+
+### [2026 LiveLaw (SC) 644 | STATE OF UTTAR PRADESH VERSUS A.K.GABA ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-644-state-of-uttar-pradesh-versus-akgaba-etc-539294)
+*Published on: Tue, 30 Jun 2026 05:04:29 GMT*
+
