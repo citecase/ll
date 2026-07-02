@@ -1955,3 +1955,18 @@
 ### [2026 LiveLaw (SC) 644 | STATE OF UTTAR PRADESH VERSUS A.K.GABA ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-644-state-of-uttar-pradesh-versus-akgaba-etc-539294)
 *Published on: Tue, 30 Jun 2026 05:04:29 GMT*
 
+### [2026 LiveLaw (SC) 651 | NEERAJ GUPTA Versus PARDEEP KUMAR BANSAL & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-651-neeraj-gupta-versus-pardeep-kumar-bansal-ors-539536)
+*Published on: Wed, 01 Jul 2026 12:45:46 GMT*
+
+
+### [2026 LiveLaw (SC) 650 | CHANDRIKABEN KISHOR DAFDA VERSUS STATE OF GUJARAT & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-650-chandrikaben-kishor-dafda-versus-state-of-gujarat-anr-539525)
+*Published on: Wed, 01 Jul 2026 12:51:20 GMT*
+
+
+### [2026 LiveLaw (SC) 649 | SHAURYA SUNIL KUMAR SINGH Versus CENTRAL BUREAU OF INVESTIGATION](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-649-shaurya-sunil-kumar-singh-versus-central-bureau-of-investigation-539496)
+*Published on: Wed, 01 Jul 2026 11:02:25 GMT*
+
+
+### [2026 LiveLaw (SC) 648 | PARVEEN KUMAR@ PARVEEN CHAUHAN Versus STATE OF HARYANA AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-648-parveen-kumar-parveen-chauhan-versus-state-of-haryana-and-ors-539490)
+*Published on: Wed, 01 Jul 2026 10:43:23 GMT*
+
