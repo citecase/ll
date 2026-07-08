@@ -1981,3 +1981,10 @@
 ### [2026 LiveLaw (SC) 652 | KRISHNA KUMAR OJHA &ORS. Versus JITENDRA CHAUDHARY & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-652-krishna-kumar-ojha-ors-versus-jitendra-chaudhary-ors-539611)
 *Published on: Thu, 02 Jul 2026 04:59:32 GMT*
 
+### [2026 LiveLaw (SC) 656 |  Ajay Vijh v. Indian Banks Association](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-656-ajay-vijh-v-indian-banks-association-540259)
+*Published on: Tue, 07 Jul 2026 12:51:48 GMT*
+
+
+### [2026 LiveLaw (SC) 655 |  Sardari Lal v. Bishan Dass & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-655-sardari-lal-v-bishan-dass-ors-540194)
+*Published on: Tue, 07 Jul 2026 07:32:34 GMT*
+
