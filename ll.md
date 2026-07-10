@@ -1988,3 +1988,10 @@
 ### [2026 LiveLaw (SC) 655 |  Sardari Lal v. Bishan Dass & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-655-sardari-lal-v-bishan-dass-ors-540194)
 *Published on: Tue, 07 Jul 2026 07:32:34 GMT*
 
+### [2026 LiveLaw (SC) 658 | M/S. LEVITATE MOBILE TECHNOLOGIES PVT. LTD. VERSUS M/S. STANDARD CHARTERED BANK & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-658-ms-levitate-mobile-technologies-pvt-ltd-versus-ms-standard-chartered-bank-anr-540618)
+*Published on: Thu, 09 Jul 2026 15:29:59 GMT*
+
+
+### [2026 LiveLaw (SC) 657 | BEJLA ORAON VERSUS KALI DAS ORAON & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-657-bejla-oraon-versus-kali-das-oraon-ors-540525)
+*Published on: Thu, 09 Jul 2026 09:30:30 GMT*
+
