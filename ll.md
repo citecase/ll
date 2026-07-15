@@ -2033,3 +2033,30 @@
 ### [2026 LiveLaw (SC) 661 |  THE DIRECTOR GENERAL, COUNCIL OF SCIENTIFIC AND INDUSTRIAL RESEARCH & ORS. VERSUS ANIL EARNEST](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-661-the-director-general-council-of-scientific-and-industrial-research-ors-versus-anil-earnest-540980)
 *Published on: Mon, 13 Jul 2026 11:03:54 GMT*
 
+### [2026 LiveLaw (SC) 675 |MAHINDER & ORS. VERSUS PURAN SINGH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-675-mahinder-ors-versus-puran-singh-541210)
+*Published on: Tue, 14 Jul 2026 13:00:20 GMT*
+
+
+### [2026 LiveLaw (SC) 674 | THE STATE OF JHARKHAND VERSUS JAGDISH LAKRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-674-the-state-of-jharkhand-versus-jagdish-lakra-541207)
+*Published on: Tue, 14 Jul 2026 12:48:23 GMT*
+
+
+### [2026 LiveLaw (SC) 673 |  THE STATE OF HARYANA & ORS. VERSUS M/S FARIDABAD GURGAON MINERALS & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-673-the-state-of-haryana-ors-versus-ms-faridabad-gurgaon-minerals-anr-541159)
+*Published on: Tue, 14 Jul 2026 10:10:36 GMT*
+
+
+### [2026 LiveLaw (SC) 672 | SABITRI DEY @ SWASTHI DEY Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-672-sabitri-dey-swasthi-dey-vs-union-of-india-541112)
+*Published on: Tue, 14 Jul 2026 06:02:51 GMT*
+
+
+### [2026 LiveLaw (SC) 671 | STATE OF HARYANA & ORS. VERSUS M/S. JAI DURGAA FINVEST P. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-671-state-of-haryana-ors-versus-ms-jai-durgaa-finvest-p-ltd-541110)
+*Published on: Tue, 14 Jul 2026 05:55:45 GMT*
+
+
+### [2026 LiveLaw (SC) 670 | Brajesh Kumar @ Birjesh Kumar Singh Versus The State of Bihar](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-670-brajesh-kumar-birjesh-kumar-singh-versus-the-state-of-bihar-541102)
+*Published on: Tue, 14 Jul 2026 05:14:47 GMT*
+
+
+### [2026 LiveLaw (SC) 669 | STATE OF MAHARASHTRA VERSUS MONIKA KIRAN SURYAWANSHI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-669-state-of-maharashtra-versus-monika-kiran-suryawanshi-ors-541090)
+*Published on: Tue, 14 Jul 2026 05:03:21 GMT*
+
