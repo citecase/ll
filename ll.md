@@ -2060,3 +2060,22 @@
 ### [2026 LiveLaw (SC) 669 | STATE OF MAHARASHTRA VERSUS MONIKA KIRAN SURYAWANSHI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-669-state-of-maharashtra-versus-monika-kiran-suryawanshi-ors-541090)
 *Published on: Tue, 14 Jul 2026 05:03:21 GMT*
 
+### [2026 LiveLaw (SC) 680 | Deo Prasad and Another v. State of Uttar Pradesh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-680-deo-prasad-and-another-v-state-of-uttar-pradesh-541455)
+*Published on: Wed, 15 Jul 2026 15:41:28 GMT*
+
+
+### [2026 LiveLaw (SC) 679 | VENKATESHA AND ANR. VS. K.M. VENKATAMUNIYAPPA (D) THR. LRS. & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-679-venkatesha-and-anr-vs-km-venkatamuniyappa-d-thr-lrs-ors-541335)
+*Published on: Wed, 15 Jul 2026 07:57:18 GMT*
+
+
+### [2026 LiveLaw (SC) 678 | Alok Kotahwala & Ors. v. Jaipur Metro Rail Corporation Ltd. & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-678-alok-kotahwala-ors-v-jaipur-metro-rail-corporation-ltd-ors-541311)
+*Published on: Wed, 15 Jul 2026 07:01:29 GMT*
+
+
+### [2026 LiveLaw (SC) 677 | MANASH KAMAL BEZBORUAH VERSUS M/S BOKAHOLA TEA COMPANY PRIVATE LIMITED & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-677-manash-kamal-bezboruah-versus-ms-bokahola-tea-company-private-limited-ors-541277)
+*Published on: Wed, 15 Jul 2026 05:24:06 GMT*
+
+
+### [2026 LiveLaw (SC) 676 | R. VERONICA & ANR. VERSUS RUDRAYANI DEVAKI(D) THROUGH LRS. S. SATHA KUMAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-676-r-veronica-anr-versus-rudrayani-devakid-through-lrs-s-satha-kumar-ors-541268)
+*Published on: Wed, 15 Jul 2026 04:31:28 GMT*
+
