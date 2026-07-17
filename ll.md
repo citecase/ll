@@ -2079,3 +2079,14 @@
 ### [2026 LiveLaw (SC) 676 | R. VERONICA & ANR. VERSUS RUDRAYANI DEVAKI(D) THROUGH LRS. S. SATHA KUMAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-676-r-veronica-anr-versus-rudrayani-devakid-through-lrs-s-satha-kumar-ors-541268)
 *Published on: Wed, 15 Jul 2026 04:31:28 GMT*
 
+### [2026 LiveLaw (SC) 683 | SANJAY SHARMA @ SANJAY BHARDWAJ VERSUS KRISHNADHAN KHAWARE AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-683-sanjay-sharma-sanjay-bhardwaj-versus-krishnadhan-khaware-and-ors-541623)
+*Published on: Thu, 16 Jul 2026 15:10:21 GMT*
+
+
+### [2026 LiveLaw (SC) 682 | JASPAL SINGH VERSUS ASHWANI KUMAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-682-jaspal-singh-versus-ashwani-kumar-541547)
+*Published on: Thu, 16 Jul 2026 09:40:53 GMT*
+
+
+### [2026 LiveLaw (SC) 681 | LAKSHMI VERSUS GOPI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-681-lakshmi-versus-gopi-ors-541478)
+*Published on: Thu, 16 Jul 2026 04:57:56 GMT*
+
