@@ -2090,3 +2090,22 @@
 ### [2026 LiveLaw (SC) 681 | LAKSHMI VERSUS GOPI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-681-lakshmi-versus-gopi-ors-541478)
 *Published on: Thu, 16 Jul 2026 04:57:56 GMT*
 
+### [2026 LiveLaw (SC) 688 | Liakat Ali v State of Jammu and Kashmir](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-688-liakat-ali-v-state-of-jammu-and-kashmir-541788)
+*Published on: Fri, 17 Jul 2026 14:44:22 GMT*
+
+
+### [2026 LiveLaw (SC) 687 |  Mani @ Subramaniyam v State](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-687-mani-subramaniyam-v-state-541785)
+*Published on: Fri, 17 Jul 2026 14:32:37 GMT*
+
+
+### [2026 LiveLaw (SC) 686 | Pranesh M.K. v. A.V. Gayathri & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-686-pranesh-mk-v-av-gayathri-ors-541739)
+*Published on: Fri, 17 Jul 2026 11:27:45 GMT*
+
+
+### [2026 LiveLaw (SC) 685 | M/s Bajaj Trading Company v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-685-ms-bajaj-trading-company-v-union-of-india-541722)
+*Published on: Fri, 17 Jul 2026 10:28:35 GMT*
+
+
+### [2026 LiveLaw (SC) 684 | National Legal Services Authority v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-684-national-legal-services-authority-v-union-of-india-541681)
+*Published on: Fri, 17 Jul 2026 07:43:37 GMT*
+
