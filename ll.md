@@ -2109,3 +2109,26 @@
 ### [2026 LiveLaw (SC) 684 | National Legal Services Authority v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-684-national-legal-services-authority-v-union-of-india-541681)
 *Published on: Fri, 17 Jul 2026 07:43:37 GMT*
 
+### [2026 LiveLaw (SC) 694 | M/S TATA STEEL LTD. VERSUS VARSHA & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-694-ms-tata-steel-ltd-versus-varsha-anr-541891)
+*Published on: Sat, 18 Jul 2026 16:15:13 GMT*
+
+
+### [2026 LiveLaw (SC) 693 | RAHUL S/o. RAMNARAYAN MADANKAR & ANR. VERSUS THE NEW INDIA ASSURANCE COMPANY LIMITED & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-693-rahul-so-ramnarayan-madankar-anr-versus-the-new-india-assurance-company-limited-ors-541859)
+*Published on: Sat, 18 Jul 2026 09:53:58 GMT*
+
+
+### [2026 LiveLaw (SC) 692 | THE STATE OF WEST BENGAL VERSUS KADER KHAN](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-692-the-state-of-west-bengal-versus-kader-khan-541854)
+*Published on: Sat, 18 Jul 2026 09:24:45 GMT*
+
+
+### [2026 LiveLaw (SC) 691 | DEBOJIT PANKIKA CHARAIDEO SONARI VERSUS THE STATE OF ASSAM](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-691-debojit-pankika-charaideo-sonari-versus-the-state-of-assam-541831)
+*Published on: Sat, 18 Jul 2026 06:25:26 GMT*
+
+
+### [2026 LiveLaw (SC) 690 | BASAMMA & ANR. Versus GOPARAPPA AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-690-basamma-anr-versus-goparappa-and-ors-541813)
+*Published on: Sat, 18 Jul 2026 04:54:26 GMT*
+
+
+### [2026 LiveLaw (SC) 689 | Lata v Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-689-lata-v-union-of-india-541801)
+*Published on: Sat, 18 Jul 2026 02:47:12 GMT*
+
