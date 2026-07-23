@@ -2158,3 +2158,30 @@
 ### [2026 LiveLaw (SC) 698 |  COMMISSIONER OF SERVICE TAX MUMBAI VERSUS M/S BHARAT PETROLEUM CORPORATION LTD. ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-698-commissioner-of-service-tax-mumbai-versus-ms-bharat-petroleum-corporation-ltd-etc-542111)
 *Published on: Tue, 21 Jul 2026 04:05:30 GMT*
 
+### [2026 LiveLaw (SC) 708 | RAGHURAJ PRATAP SINGH PETITIONER VERSUS BHANVI KUMARI SINGH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-708-raghuraj-pratap-singh-petitioner-versus-bhanvi-kumari-singh-542438)
+*Published on: Wed, 22 Jul 2026 14:43:07 GMT*
+
+
+### [2026 LiveLaw (SC) 707 | MAHARAJ SARAN VERSUS STATE OF PUNJAB & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-707-maharaj-saran-versus-state-of-punjab-ors-542436)
+*Published on: Wed, 22 Jul 2026 14:31:55 GMT*
+
+
+### [2026 LiveLaw (SC) 706 | VIJAYALAKSHMI R. VERSUS C. L. BALAJI](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-706-vijayalakshmi-r-versus-c-l-balaji-542432)
+*Published on: Wed, 22 Jul 2026 14:18:51 GMT*
+
+
+### [2026 LiveLaw (SC) 705 | MEHBOOB SHAH Versus STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-705-mehboob-shah-versus-state-of-madhya-pradesh-542376)
+*Published on: Wed, 22 Jul 2026 09:45:04 GMT*
+
+
+### [2026 LiveLaw (SC) 704 | MADAN MOHAN (DEAD) THROUGH LRS. VERSUS THAKAR DASS (DEAD) THR. LRS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-704-madan-mohan-dead-through-lrs-versus-thakar-dass-dead-thr-lrs-542316)
+*Published on: Wed, 22 Jul 2026 05:25:05 GMT*
+
+
+### [2026 LiveLaw (SC) 703 | PRABHAKAR YESHWANT MASRAM AND ANOTHER VERSUS SOU TULA NAMDEORAO JAIPURKAR AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-703-prabhakar-yeshwant-masram-and-another-versus-sou-tula-namdeorao-jaipurkar-and-another-542313)
+*Published on: Wed, 22 Jul 2026 05:19:35 GMT*
+
+
+### [2026 LiveLaw (SC) 702 | X v. State of Bihar & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-702-x-v-state-of-bihar-anr-542304)
+*Published on: Wed, 22 Jul 2026 04:48:24 GMT*
+
