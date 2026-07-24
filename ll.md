@@ -2185,3 +2185,18 @@
 ### [2026 LiveLaw (SC) 702 | X v. State of Bihar & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-702-x-v-state-of-bihar-anr-542304)
 *Published on: Wed, 22 Jul 2026 04:48:24 GMT*
 
+### [2026 LiveLaw (SC) 712 | UNION OF INDIA AND OTHERS VERSUS HARBANS LAL VERMA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-712-union-of-india-and-others-versus-harbans-lal-verma-542641)
+*Published on: Thu, 23 Jul 2026 15:35:45 GMT*
+
+
+### [2026 LiveLaw (SC) 711 | Ashok Kumar Sinha v. Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-711-ashok-kumar-sinha-v-union-of-india-ors-542598)
+*Published on: Thu, 23 Jul 2026 10:36:15 GMT*
+
+
+### [2026 LiveLaw (SC) 710  | RAVINDER MEHTA v STATE OF UTTAR PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-710-ravinder-mehta-v-state-of-uttar-pradesh-542520)
+*Published on: Thu, 23 Jul 2026 06:00:30 GMT*
+
+
+### [2026 LiveLaw (SC) 709 | DILIP AGARWAL Versus RAJSHRI AGARWAL & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-709-dilip-agarwal-versus-rajshri-agarwal-ors-542515)
+*Published on: Thu, 23 Jul 2026 05:39:32 GMT*
+
