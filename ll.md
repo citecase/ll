@@ -2200,3 +2200,18 @@
 ### [2026 LiveLaw (SC) 709 | DILIP AGARWAL Versus RAJSHRI AGARWAL & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-709-dilip-agarwal-versus-rajshri-agarwal-ors-542515)
 *Published on: Thu, 23 Jul 2026 05:39:32 GMT*
 
+### [2026 LiveLaw (SC) 716 |  RUTVIJ BHAGAT SINGH WAKHARE Versus THE STATE OF MAHARASHTRA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-716-rutvij-bhagat-singh-wakhare-versus-the-state-of-maharashtra-ors-542815)
+*Published on: Fri, 24 Jul 2026 13:42:25 GMT*
+
+
+### [2026 LiveLaw (SC) 715 | SUPTAN MARAK VERSUS STATE OF TRIPURA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-715-suptan-marak-versus-state-of-tripura-542803)
+*Published on: Fri, 24 Jul 2026 12:51:00 GMT*
+
+
+### [2026 LiveLaw (SC) 714 | Rajasab v Hulagappa](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-714-rajasab-v-hulagappa-542795)
+*Published on: Fri, 24 Jul 2026 12:28:44 GMT*
+
+
+### [2026 LiveLaw (SC) 713 |  Mrs. Mahabanoo Contractor and Anr. Versus M/s. Kalikund Developers and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-713-mrs-mahabanoo-contractor-and-anr-versus-ms-kalikund-developers-and-ors-542791)
+*Published on: Fri, 24 Jul 2026 12:16:20 GMT*
+
