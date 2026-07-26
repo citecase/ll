@@ -2215,3 +2215,14 @@
 ### [2026 LiveLaw (SC) 713 |  Mrs. Mahabanoo Contractor and Anr. Versus M/s. Kalikund Developers and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-713-mrs-mahabanoo-contractor-and-anr-versus-ms-kalikund-developers-and-ors-542791)
 *Published on: Fri, 24 Jul 2026 12:16:20 GMT*
 
+### [2026 LiveLaw (SC) 719 | ABHISHEK BAXI Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-719-abhishek-baxi-vs-union-of-india-542875)
+*Published on: Sat, 25 Jul 2026 09:27:57 GMT*
+
+
+### [2026 LiveLaw (SC) 718 | TELECOM REGULATORY AUTHORITY OF INDIA VERSUS M/S POLIMER CABLE NETWORK AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-718-telecom-regulatory-authority-of-india-versus-ms-polimer-cable-network-and-others-542859)
+*Published on: Sat, 25 Jul 2026 06:05:16 GMT*
+
+
+### [2026 LiveLaw (SC) 717 | M/S BIRLA CORPORATION LIMITED VERSUS THE STATE OF MADHYA PRADESH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-717-ms-birla-corporation-limited-versus-the-state-of-madhya-pradesh-ors-542849)
+*Published on: Sat, 25 Jul 2026 04:23:22 GMT*
+
