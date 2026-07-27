@@ -2226,3 +2226,6 @@
 ### [2026 LiveLaw (SC) 717 | M/S BIRLA CORPORATION LIMITED VERSUS THE STATE OF MADHYA PRADESH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-717-ms-birla-corporation-limited-versus-the-state-of-madhya-pradesh-ors-542849)
 *Published on: Sat, 25 Jul 2026 04:23:22 GMT*
 
+### [2026 LiveLaw (SC) 720 | Archana Avinash Shelke v State of Maharashtra](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-720-archana-avinash-shelke-v-state-of-maharashtra-542933)
+*Published on: Sun, 26 Jul 2026 06:06:44 GMT*
+
