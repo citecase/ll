@@ -2229,3 +2229,14 @@
 ### [2026 LiveLaw (SC) 720 | Archana Avinash Shelke v State of Maharashtra](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-720-archana-avinash-shelke-v-state-of-maharashtra-542933)
 *Published on: Sun, 26 Jul 2026 06:06:44 GMT*
 
+### [2026 LiveLaw (SC) 723 | TEJAS J. SHAH & AMISHA T. SHAH & ORS. VERSUS MANTRI TECHNOLOGY CONSTELLATIONS PVT.LTD. (NOW KNOWN AS BUOYANT TECHNOLOGY CONSTELLATIONS PVT.LTD.) & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-723-tejas-j-shah-amisha-t-shah-ors-versus-mantri-technology-constellations-pvtltd-now-known-as-buoyant-technology-constellations-pvtltd-ors-543087)
+*Published on: Mon, 27 Jul 2026 14:13:22 GMT*
+
+
+### [2026 LiveLaw (SC) 722 | THE STATE OF ANDHRA PRADESH VERSUS SUDA SURESH VEERA VENKATA NAGA RAJU](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-722-the-state-of-andhra-pradesh-versus-suda-suresh-veera-venkata-naga-raju-543075)
+*Published on: Mon, 27 Jul 2026 13:30:56 GMT*
+
+
+### [2026 LiveLaw (SC) 721 | DEBASHISH MOHAPATRA & ORS. VS. DISTRICT AND SESSION JUDGE, JAGATSINGHPUR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-721-debashish-mohapatra-ors-vs-district-and-session-judge-jagatsinghpur-ors-543046)
+*Published on: Mon, 27 Jul 2026 10:45:17 GMT*
+
