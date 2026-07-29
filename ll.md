@@ -2240,3 +2240,26 @@
 ### [2026 LiveLaw (SC) 721 | DEBASHISH MOHAPATRA & ORS. VS. DISTRICT AND SESSION JUDGE, JAGATSINGHPUR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-721-debashish-mohapatra-ors-vs-district-and-session-judge-jagatsinghpur-ors-543046)
 *Published on: Mon, 27 Jul 2026 10:45:17 GMT*
 
+### [2026 LiveLaw (SC) 728 | MAHERAVISH REIN v. UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-728-maheravish-rein-v-union-of-india-543275)
+*Published on: Tue, 28 Jul 2026 15:44:01 GMT*
+
+
+### [2026 LiveLaw (SC) 727 | Khalil Pasha & Ors. Versus Abdul Rasheed & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-727-khalil-pasha-ors-versus-abdul-rasheed-anr-543269)
+*Published on: Tue, 28 Jul 2026 15:25:48 GMT*
+
+
+### [2026 LiveLaw (SC) 726 | SANJIV KUMAR VERSUS SHAKUNTLA DEVI AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-726-sanjiv-kumar-versus-shakuntla-devi-and-others-543182)
+*Published on: Tue, 28 Jul 2026 08:54:05 GMT*
+
+
+### [2026 LiveLaw (SC) 725 | Bhandari Scrap Traders v. Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-725-bhandari-scrap-traders-v-union-of-india-ors-543180)
+*Published on: Tue, 28 Jul 2026 08:52:23 GMT*
+
+
+### [2026 LiveLaw (SC) 725 | Bhandari Scrap Traders v. Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-725-bhandari-scrap-traders-v-union-of-india-ors-543150)
+*Published on: Tue, 28 Jul 2026 05:47:15 GMT*
+
+
+### [2026 LiveLaw (SC) 724  |  KRISHNAN NARAYANA VERSUS THE STATE OF ANDHRA PRADESH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-724-krishnan-narayana-versus-the-state-of-andhra-pradesh-ors-543138)
+*Published on: Tue, 28 Jul 2026 05:26:44 GMT*
+
