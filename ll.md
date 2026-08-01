@@ -2317,3 +2317,26 @@
 ### [2026 LiveLaw (SC) 736 | RAMASREY @ FAKKAD VERSUS STATE OF UTTAR PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-736-ramasrey-fakkad-versus-state-of-uttar-pradesh-543517)
 *Published on: Thu, 30 Jul 2026 04:52:21 GMT*
 
+### [2026 LiveLaw (SC) 748 | HIMANSHU CHORDIA VERSUS STATE OF RAJASTHAN & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-748-himanshu-chordia-versus-state-of-rajasthan-anr-543818)
+*Published on: Fri, 31 Jul 2026 14:04:23 GMT*
+
+
+### [2026 LiveLaw (SC) 747 | Mahendra Singh Versus The State of Chhattisgarh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-747-mahendra-singh-versus-the-state-of-chhattisgarh-543815)
+*Published on: Fri, 31 Jul 2026 12:32:08 GMT*
+
+
+### [2026 LiveLaw (SC) 746 | Nisha v. Municipal Council Sangrur](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-746-nisha-v-municipal-council-sangrur-543785)
+*Published on: Fri, 31 Jul 2026 10:33:49 GMT*
+
+
+### [2026 LiveLaw (SC) 745 | Sayara Khatoon @ Shajara Khatoon & Anr. v. State of Bihar & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-745-sayara-khatoon-shajara-khatoon-anr-v-state-of-bihar-ors-543768)
+*Published on: Fri, 31 Jul 2026 09:16:40 GMT*
+
+
+### [2026 LiveLaw (SC) 744 | VISHNU KUMAR GUPTA VERSUS STATE OF MADHYA PRADESH AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-744-vishnu-kumar-gupta-versus-state-of-madhya-pradesh-and-anr-543714)
+*Published on: Fri, 31 Jul 2026 05:41:42 GMT*
+
+
+### [2026 LiveLaw (SC) 743 | S. P. CHANDRAKAR VERSUS STATE OF CHHATTISGARH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-743-s-p-chandrakar-versus-state-of-chhattisgarh-ors-543696)
+*Published on: Fri, 31 Jul 2026 04:41:25 GMT*
+
