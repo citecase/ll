@@ -2343,3 +2343,10 @@
 ### [2026 LiveLaw (SC) 749 | Employees Provident Fund Organisation v. Rachna Jhunjhunwala & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-749-employees-provident-fund-organisation-v-rachna-jhunjhunwala-anr-543871)
 *Published on: Sat, 01 Aug 2026 06:15:55 GMT*
 
+### [2026 LiveLaw (SC) 751 | TEHRI HYDRO DEVELOPMENT CORPORATION LTD. VERSUS S.P. SINGH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-751-tehri-hydro-development-corporation-ltd-versus-sp-singh-ors-543964)
+*Published on: Mon, 03 Aug 2026 02:28:58 GMT*
+
+
+### [2026 LiveLaw (SC) 750 | THE DIRECTOR OF INCOME TAX, (INTERNATIONAL TAXATION). VERSUS M/S STAR CRUISES (INDIA) P. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-750-the-director-of-income-tax-international-taxation-versus-ms-star-cruises-india-p-ltd-543948)
+*Published on: Sun, 02 Aug 2026 05:43:31 GMT*
+
