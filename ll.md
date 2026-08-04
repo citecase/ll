@@ -2350,3 +2350,22 @@
 ### [2026 LiveLaw (SC) 750 | THE DIRECTOR OF INCOME TAX, (INTERNATIONAL TAXATION). VERSUS M/S STAR CRUISES (INDIA) P. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-750-the-director-of-income-tax-international-taxation-versus-ms-star-cruises-india-p-ltd-543948)
 *Published on: Sun, 02 Aug 2026 05:43:31 GMT*
 
+### [2026 LiveLaw (SC) 756 | GAYATREE PATTNAIK FOR SHREEJITA PATTNAIK VERSUS ARUNDHATI SAHOO AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-756-gayatree-pattnaik-for-shreejita-pattnaik-versus-arundhati-sahoo-and-anr-544151)
+*Published on: Mon, 03 Aug 2026 14:03:21 GMT*
+
+
+### [2026 LiveLaw (SC) 755 | Suraj Bhan and others versus Ashvarya Estate Pvt. Ltd. and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-755-suraj-bhan-and-others-versus-ashvarya-estate-pvt-ltd-and-others-544137)
+*Published on: Mon, 03 Aug 2026 12:53:41 GMT*
+
+
+### [2026 LiveLaw (SC) 754 | MOHAMMED ABDUL AHAD SHAKER VERSUS STATE OF TELANGANA AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-754-mohammed-abdul-ahad-shaker-versus-state-of-telangana-and-another-544125)
+*Published on: Mon, 03 Aug 2026 11:59:00 GMT*
+
+
+### [2026 LiveLaw (SC) 753 |  Dr LOKESH BH & ORS. VERSUS STATE OF KARNATAKA & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-753-x-ors-versus-state-of-karnataka-anr-544067)
+*Published on: Mon, 03 Aug 2026 11:16:04 GMT*
+
+
+### [2026 LiveLaw (SC) 752 | State of Meghalaya v. Sonam Raghuvanshi @ Bitti @ Bittu](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-752-state-of-meghalaya-v-sonam-raghuvanshi-bitti-bittu-543969)
+*Published on: Mon, 03 Aug 2026 02:50:19 GMT*
+
