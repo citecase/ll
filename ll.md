@@ -2369,3 +2369,18 @@
 ### [2026 LiveLaw (SC) 752 | State of Meghalaya v. Sonam Raghuvanshi @ Bitti @ Bittu](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-752-state-of-meghalaya-v-sonam-raghuvanshi-bitti-bittu-543969)
 *Published on: Mon, 03 Aug 2026 02:50:19 GMT*
 
+### [2026 LiveLaw (SC) 760 | Amravati Municipal Corporation v Ganesh Dadarao Anasane and others](https://www.livelaw.in/sc-judgments/amravati-municipal-corporation-v-ganesh-dadarao-anasane-and-others-544326)
+*Published on: Tue, 04 Aug 2026 14:02:58 GMT*
+
+
+### [2026 LiveLaw (SC) 759 | National Insurance Co Ltd v Smt Thungala Dhana Laxmi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-759-national-insurance-co-ltd-v-smt-thungala-dhana-laxmi-544307)
+*Published on: Tue, 04 Aug 2026 12:34:12 GMT*
+
+
+### [2026 LiveLaw (SC) 758 |  V.N.A.S Chandran v S Venila and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-758-vnas-chandran-v-s-venila-and-others-544220)
+*Published on: Tue, 04 Aug 2026 05:54:48 GMT*
+
+
+### [2026 LiveLaw (SC) 757 | G Saminathan & Another v The State](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-757-g-saminathan-another-v-the-state-544215)
+*Published on: Tue, 04 Aug 2026 05:35:27 GMT*
+
