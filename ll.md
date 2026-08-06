@@ -2384,3 +2384,30 @@
 ### [2026 LiveLaw (SC) 757 | G Saminathan & Another v The State](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-757-g-saminathan-another-v-the-state-544215)
 *Published on: Tue, 04 Aug 2026 05:35:27 GMT*
 
+### [2026 LiveLaw (SC) 767  |  COMMISSIONER OF CENTRAL EXCISE, HYDERABAD-IV VERSUS M/S XEROX INDIA LTD. & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-767-commissioner-of-central-excise-hyderabad-iv-versus-ms-xerox-india-ltd-ors-544528)
+*Published on: Wed, 05 Aug 2026 15:40:39 GMT*
+
+
+### [2026 LiveLaw (SC) 766 | GOVERNMENT OF INDIA & ANR. VS. SRI DEVRAJ URS MEDICAL COLLEGE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-766-government-of-india-anr-vs-sri-devraj-urs-medical-college-544473)
+*Published on: Wed, 05 Aug 2026 12:26:04 GMT*
+
+
+### [2026 LiveLaw (SC) 765 | KUNTEGOWDA VERSUS THURUBAIAH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-765-kuntegowda-versus-thurubaiah-544448)
+*Published on: Wed, 05 Aug 2026 10:28:24 GMT*
+
+
+### [2026 LiveLaw (SC) 764 |K. BHARATHAMMA VERSUS BANDARU SAKKU BAI AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-764-k-bharathamma-versus-bandaru-sakku-bai-and-others-544437)
+*Published on: Wed, 05 Aug 2026 09:49:05 GMT*
+
+
+### [2026 LiveLaw (SC) 763 | MANJULA KAPOOR VERSUS THE STATE OF HIMACHAL PRADESH AND ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-763-manjula-kapoor-versus-the-state-of-himachal-pradesh-and-anr-544428)
+*Published on: Wed, 05 Aug 2026 09:24:18 GMT*
+
+
+### [2026 LiveLaw (SC) 762 | Arjun Jani @ Tuntun Versus State of Orissa](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-762-arjun-jani-tuntun-versus-state-of-orissa-544387)
+*Published on: Wed, 05 Aug 2026 06:02:00 GMT*
+
+
+### [2026 LiveLaw (SC) 761| DELHI TECHNOLOGICAL UNIVERSITY VERSUS B.S. RAWAT](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-delhi-technological-university-versus-bs-rawat-544381)
+*Published on: Wed, 05 Aug 2026 06:00:22 GMT*
+
