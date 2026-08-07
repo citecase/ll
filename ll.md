@@ -2411,3 +2411,14 @@
 ### [2026 LiveLaw (SC) 761| DELHI TECHNOLOGICAL UNIVERSITY VERSUS B.S. RAWAT](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-delhi-technological-university-versus-bs-rawat-544381)
 *Published on: Wed, 05 Aug 2026 06:00:22 GMT*
 
+### [2026 LiveLaw (SC) 770 | K. VENKATASWAMY & ORS. VS. GOWRAMMA & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-770-k-venkataswamy-ors-vs-gowramma-anr-544681)
+*Published on: Thu, 06 Aug 2026 14:21:04 GMT*
+
+
+### [2026 LiveLaw (SC) 769 | KKH Finvest Pvt. Ltd. and another versus Ashiesh Shukla and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-769-kkh-finvest-pvt-ltd-and-another-versus-ashiesh-shukla-and-others-544663)
+*Published on: Thu, 06 Aug 2026 12:41:20 GMT*
+
+
+### [2026 LiveLaw (SC) 768|  SUSHIL SHARMA VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-768-sushil-sharma-versus-union-of-india-and-others-544656)
+*Published on: Thu, 06 Aug 2026 12:22:49 GMT*
+
