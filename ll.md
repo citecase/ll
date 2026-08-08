@@ -2422,3 +2422,30 @@
 ### [2026 LiveLaw (SC) 768|  SUSHIL SHARMA VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-768-sushil-sharma-versus-union-of-india-and-others-544656)
 *Published on: Thu, 06 Aug 2026 12:22:49 GMT*
 
+### [2026 LiveLaw (SC) 777 | SUDHENDU PRAKASH GAUTAM VERSUS S.L. CHAUDHARY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-777-sudhendu-prakash-gautam-versus-sl-chaudhary-544881)
+*Published on: Fri, 07 Aug 2026 15:46:30 GMT*
+
+
+### [2026 LiveLaw (SC) 776 | S. SANGEETHA & ORS. VERSUS TMT. P. PONNI](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-776-s-sangeetha-ors-versus-tmt-p-ponni-544879)
+*Published on: Fri, 07 Aug 2026 15:39:48 GMT*
+
+
+### [2026 LiveLaw (SC) 775 | ALFIYA.A VERSUS STATE OF KERALA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-775-alfiyaa-versus-state-of-kerala-ors-544850)
+*Published on: Fri, 07 Aug 2026 12:31:29 GMT*
+
+
+### [2026 LiveLaw (SC) 774 |  IN RE: ORDER DATED 17.03.2025 PASSED BY THE HIGH COURT OF JUDICATURE AT ALLAHABAD IN CRIMINAL REVISION NO. 1449/2024 AND ANCILLARY ISSUES](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-774-in-re-order-dated-17032025-passed-by-the-high-court-of-judicature-at-allahabad-in-criminal-revision-no-14492024-and-ancillary-issues-544847)
+*Published on: Fri, 07 Aug 2026 12:22:53 GMT*
+
+
+### [2026 LiveLaw (SC) 773 | SCINDIA DEVESTHAN TRUST VERSUS JAMUNA PRASAD SARASWAT (DEAD) THROUGH LRS. & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-772-scindia-devesthan-trust-versus-jamuna-prasad-saraswat-dead-through-lrs-ors-544844)
+*Published on: Fri, 07 Aug 2026 12:13:45 GMT*
+
+
+### [2026 LiveLaw (SC) 772 | MUKKERA VENKATA RATNAM & ORS Versus VANTASALA CHINA VENKATESWARLU & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-772-544809)
+*Published on: Fri, 07 Aug 2026 09:47:16 GMT*
+
+
+### [2026 LiveLaw (SC) 771 | IN RE: CADETS DISABLED IN MILITARY TRAINING STRUGGLE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-771-in-re-cadets-disabled-in-military-training-struggle-544754)
+*Published on: Fri, 07 Aug 2026 05:09:39 GMT*
+
