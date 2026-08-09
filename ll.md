@@ -2449,3 +2449,6 @@
 ### [2026 LiveLaw (SC) 771 | IN RE: CADETS DISABLED IN MILITARY TRAINING STRUGGLE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-771-in-re-cadets-disabled-in-military-training-struggle-544754)
 *Published on: Fri, 07 Aug 2026 05:09:39 GMT*
 
+### [2026 LiveLaw (SC) 778 | ASIA SUGAR & CHEMICAL CO., DEVANGERE VERSUS THE STATE OF KARNATAKA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-778-asia-sugar-chemical-co-devangere-versus-the-state-of-karnataka-ors-544894)
+*Published on: Sat, 08 Aug 2026 02:36:28 GMT*
+
