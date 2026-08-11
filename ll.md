@@ -2452,3 +2452,14 @@
 ### [2026 LiveLaw (SC) 778 | ASIA SUGAR & CHEMICAL CO., DEVANGERE VERSUS THE STATE OF KARNATAKA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-778-asia-sugar-chemical-co-devangere-versus-the-state-of-karnataka-ors-544894)
 *Published on: Sat, 08 Aug 2026 02:36:28 GMT*
 
+### [2026 LiveLaw (SC) 781 | M/s Goodluck India Limited & Anr. Versus Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-781-ms-goodluck-india-limited-anr-versus-union-of-india-ors-545144)
+*Published on: Mon, 10 Aug 2026 13:39:47 GMT*
+
+
+### [2026 LiveLaw (SC) 780 | Raziya Begum & Ors. Versus Nafisa Begum Abdul Hamid & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-780-raziya-begum-ors-versus-nafisa-begum-abdul-hamid-ors-545043)
+*Published on: Mon, 10 Aug 2026 06:32:10 GMT*
+
+
+### [2026 LiveLaw (SC) 779 | NIRMALA BAI DEVIDAS CHAVHAN VERSUS STATE OF MAHARASHTRA AND OTHERS ETC](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-779-nirmala-bai-devidas-chavhan-versus-state-of-maharashtra-and-others-etc-545025)
+*Published on: Mon, 10 Aug 2026 05:11:27 GMT*
+
