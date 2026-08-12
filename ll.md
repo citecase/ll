@@ -2463,3 +2463,30 @@
 ### [2026 LiveLaw (SC) 779 | NIRMALA BAI DEVIDAS CHAVHAN VERSUS STATE OF MAHARASHTRA AND OTHERS ETC](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-779-nirmala-bai-devidas-chavhan-versus-state-of-maharashtra-and-others-etc-545025)
 *Published on: Mon, 10 Aug 2026 05:11:27 GMT*
 
+### [2026 LiveLaw (SC) 788 | RAM SINGH VERSUS THE STATE OF HIMACHAL PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-788-ram-singh-versus-the-state-of-himachal-pradesh-545354)
+*Published on: Tue, 11 Aug 2026 13:49:58 GMT*
+
+
+### [2026 LiveLaw (SC) 787| SECURITIES AND EXCHANGE BOARD OF INDIA VERSUS RAJEEV VASANT SHETH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-787-securities-and-exchange-board-of-india-versus-rajeev-vasant-sheth-ors-545333)
+*Published on: Tue, 11 Aug 2026 12:38:31 GMT*
+
+
+### [2026 LiveLaw (SC) 786 | RAHUL VERSUS STATE OF UTTAR PRADESH AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-786-rahul-versus-state-of-uttar-pradesh-and-another-545313)
+*Published on: Tue, 11 Aug 2026 11:50:57 GMT*
+
+
+### [2026 LiveLaw (SC) 785 | CHOWDAPPA VERSUS HANUMANTHARAYAPPA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-785-chowdappa-versus-hanumantharayappa-and-others-545263)
+*Published on: Tue, 11 Aug 2026 08:41:53 GMT*
+
+
+### [2026 LiveLaw (SC) 784 | U.P. PUBLIC SERVICE COMMISSION THROUGH ITS CHAIRMAN & ANR. VERSUS SUNIL KUMAR SINGH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-784-up-public-service-commission-through-its-chairman-anr-versus-sunil-kumar-singh-ors-545246)
+*Published on: Tue, 11 Aug 2026 07:38:25 GMT*
+
+
+### [2026 LiveLaw (SC) 783 |  KULDEEP KAUR VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-783-kuldeep-kaur-versus-union-of-india-ors-545203)
+*Published on: Tue, 11 Aug 2026 04:44:29 GMT*
+
+
+### [2026 LiveLaw (SC) 782 | G. Ganesh v. State of Tamil Nadu & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-782-g-ganesh-v-state-of-tamil-nadu-ors-545197)
+*Published on: Tue, 11 Aug 2026 04:27:37 GMT*
+
