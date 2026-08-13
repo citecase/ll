@@ -2490,3 +2490,34 @@
 ### [2026 LiveLaw (SC) 782 | G. Ganesh v. State of Tamil Nadu & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-782-g-ganesh-v-state-of-tamil-nadu-ors-545197)
 *Published on: Tue, 11 Aug 2026 04:27:37 GMT*
 
+### [2026 LiveLaw (SC) 796 | Punjab National Bank versus M/s. Shree Jyoti Education and Management Trust World and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-796-punjab-national-bank-versus-ms-shree-jyoti-education-and-management-trust-world-and-others-545540)
+*Published on: Wed, 12 Aug 2026 14:05:04 GMT*
+
+
+### [2026 LiveLaw (SC) 795 |  Mageba Bridge Products Private Limited Versus M/s. Trade Centre](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-795-mageba-bridge-products-private-limited-versus-ms-trade-centre-545538)
+*Published on: Wed, 12 Aug 2026 14:02:38 GMT*
+
+
+### [2026 LiveLaw (SC) 794 | Lahra Bai Tamre v. State of Chhattisgarh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-794-lahra-bai-tamre-v-state-of-chhattisgarh-545512)
+*Published on: Wed, 12 Aug 2026 12:26:47 GMT*
+
+
+### [2026 LiveLaw (SC) 793 | SRINIVASA REDDY VELAGALA. SRAVANTHI INFRATECH PVT. LTD](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-793-srinivasa-reddy-velagala-sravanthi-infratech-pvt-ltd-545508)
+*Published on: Wed, 12 Aug 2026 12:14:12 GMT*
+
+
+### [2026 LiveLaw (SC) 792 | Basudev & Ors. Versus Sanjay Kumar & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-792-basudev-ors-versus-sanjay-kumar-ors-545474)
+*Published on: Wed, 12 Aug 2026 09:41:58 GMT*
+
+
+### [2026 LiveLaw (SC) 791 | National Projects Construction Corporation Ltd. Versus Ishvakoo (India) Pvt. Ltd](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-791-national-projects-construction-corporation-ltd-versus-ishvakoo-india-pvt-ltd-545446)
+*Published on: Wed, 12 Aug 2026 07:35:50 GMT*
+
+
+### [2026 LiveLaw (SC) 790 | Shabu KN Achary v. Dharampal Premchand Limited](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-790-shabu-kn-achary-v-dharampal-premchand-limited-545420)
+*Published on: Wed, 12 Aug 2026 05:42:48 GMT*
+
+
+### [2026 LiveLaw (SC) 789 | SHATRUGHN YADAV VERSUS THE FERTILIZERS AND CHEMICALS TRAVANCORE LTD. (F.A.C.T.) AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-789-shatrughn-yadav-versus-the-fertilizers-and-chemicals-travancore-ltd-fact-and-others-545415)
+*Published on: Wed, 12 Aug 2026 05:29:20 GMT*
+
