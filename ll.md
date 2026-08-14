@@ -2521,3 +2521,26 @@
 ### [2026 LiveLaw (SC) 789 | SHATRUGHN YADAV VERSUS THE FERTILIZERS AND CHEMICALS TRAVANCORE LTD. (F.A.C.T.) AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-789-shatrughn-yadav-versus-the-fertilizers-and-chemicals-travancore-ltd-fact-and-others-545415)
 *Published on: Wed, 12 Aug 2026 05:29:20 GMT*
 
+### [2026 LiveLaw (SC) 802 | BALKU ORAM VERSUS STATE OF ODISHA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-802-balku-oram-versus-state-of-odisha-545690)
+*Published on: Thu, 13 Aug 2026 12:29:53 GMT*
+
+
+### [2026 LiveLaw (SC) 801 | R.K. YADAV & ANR. VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-801-rk-yadav-anr-versus-union-of-india-and-others-545654)
+*Published on: Thu, 13 Aug 2026 10:45:10 GMT*
+
+
+### [2026 LiveLaw (SC) 800 |  BASSANNA SINCE DECEASED BY LRS. AND OTHERS VERSUS BHIMANNA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-800-bassanna-since-deceased-by-lrs-and-others-versus-bhimanna-and-others-545644)
+*Published on: Thu, 13 Aug 2026 09:37:57 GMT*
+
+
+### [2026 LiveLaw (SC) 799 | KARNATAKA POWER TRANSMISSION CORPORATION LIMITED VERSUS REKHA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-799-karnataka-power-transmission-corporation-limited-versus-rekha-ors-545640)
+*Published on: Thu, 13 Aug 2026 09:28:43 GMT*
+
+
+### [2026 LiveLaw (SC) 798 | SHRUTI MANAV SHARMA & ANR. VERSUS SUNANINA SINGH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-798-shruti-manav-sharma-anr-versus-sunanina-singh-ors-545627)
+*Published on: Thu, 13 Aug 2026 08:00:05 GMT*
+
+
+### [2026 LiveLaw (SC) 797 | UNION OF INDIA VERSUS SUNIL BIYANI](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-797-union-of-india-versus-sunil-biyani-545578)
+*Published on: Thu, 13 Aug 2026 04:36:17 GMT*
+
