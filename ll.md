@@ -2544,3 +2544,18 @@
 ### [2026 LiveLaw (SC) 797 | UNION OF INDIA VERSUS SUNIL BIYANI](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-797-union-of-india-versus-sunil-biyani-545578)
 *Published on: Thu, 13 Aug 2026 04:36:17 GMT*
 
+### [2026 LiveLaw (SC) 806 | RELIANCE INDUSTRIES LIMITED VERSUS NTPC LIMITED](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-806-reliance-industries-limited-versus-ntpc-limited-545880)
+*Published on: Fri, 14 Aug 2026 15:42:35 GMT*
+
+
+### [2026 LiveLaw (SC) 805 | DINESH KUMAR VERSUS THE STATE OF HARYANA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-805-dinesh-kumar-versus-the-state-of-haryana-545827)
+*Published on: Fri, 14 Aug 2026 11:03:41 GMT*
+
+
+### [2026 LiveLaw (SC) 804 | KASHMIR RAM @ PAPPI VERSUS STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-804-kashmir-ram-pappi-versus-state-of-punjab-545810)
+*Published on: Fri, 14 Aug 2026 09:58:49 GMT*
+
+
+### [2026 LiveLaw (SC) 803 | NAZIM SHAIKH HASAN VERSUS NASIR MUSHTAQ SHAIKH AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-803-nazim-shaikh-hasan-versus-nasir-mushtaq-shaikh-and-others-545806)
+*Published on: Fri, 14 Aug 2026 09:36:31 GMT*
+
