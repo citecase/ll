@@ -2569,3 +2569,34 @@
 ### [2026 LiveLaw (SC) 808 | SHEELA GEHLOT Versus MOHINI HARDAYAL SINGH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-808-sheela-gehlot-versus-mohini-hardayal-singh-ors-545999)
 *Published on: Sun, 16 Aug 2026 03:54:13 GMT*
 
+### [2026 LiveLaw (SC) 817 | Union of India v. Chidiebere Kingsley Nawchara & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-817-union-of-india-v-chidiebere-kingsley-nawchara-ors-546182)
+*Published on: Mon, 17 Aug 2026 15:56:01 GMT*
+
+
+### [2026 LiveLaw (SC) 816 |  State of Karnataka & Anr. v Prathik Parasrampuria](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-816-state-of-karnataka-anr-v-prathik-parasrampuria-546179)
+*Published on: Mon, 17 Aug 2026 15:11:48 GMT*
+
+
+### [2026 LiveLaw (SC) 815 | Keshvendra Singh Versus Shankar Singh And Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-815-keshvendra-singh-versus-shankar-singh-and-anr-546156)
+*Published on: Mon, 17 Aug 2026 14:00:19 GMT*
+
+
+### [2026 LiveLaw (SC) 814 | Vinod Shivakumar v State of Maharashtra](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-814-vinod-shivakumar-v-state-of-maharashtra-546139)
+*Published on: Mon, 17 Aug 2026 12:35:51 GMT*
+
+
+### [2026 LiveLaw (SC) 813 | PAZHANATHAL (DEAD) THROUGH LRS. & ORS. VERSUS ALAMATHAL (DEAD) THROUGH LRS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-813-pazhanathal-dead-through-lrs-ors-versus-alamathal-dead-through-lrs-546119)
+*Published on: Mon, 17 Aug 2026 11:27:56 GMT*
+
+
+### [2026 LiveLaw (SC) 812 | SHIVAPPA VERSUS SHANTAVVA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-812-shivappa-versus-shantavva-and-others-546112)
+*Published on: Mon, 17 Aug 2026 10:45:19 GMT*
+
+
+### [2026 LiveLaw (SC) 811 |  RASPELLI BHAGYA KISHAIYA & ORS. VERSUS GENERAL MANAGER WESTERN COALFIELDS LIMITED & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-811-raspelli-bhagya-kishaiya-ors-versus-general-manager-western-coalfields-limited-ors-546079)
+*Published on: Mon, 17 Aug 2026 08:03:43 GMT*
+
+
+### [2026 LiveLaw (SC) 810 | Taher Vajiyuddin Rangwala & Anr. Versus The State of Gujarat](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-810-taher-vajiyuddin-rangwala-anr-versus-the-state-of-gujarat-546050)
+*Published on: Mon, 17 Aug 2026 05:30:45 GMT*
+
