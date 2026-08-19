@@ -2600,3 +2600,26 @@
 ### [2026 LiveLaw (SC) 810 | Taher Vajiyuddin Rangwala & Anr. Versus The State of Gujarat](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-810-taher-vajiyuddin-rangwala-anr-versus-the-state-of-gujarat-546050)
 *Published on: Mon, 17 Aug 2026 05:30:45 GMT*
 
+### [2026 LiveLaw (SC) 823 | Rishi Malhotra v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-823-rishi-malhotra-v-union-of-india-546337)
+*Published on: Tue, 18 Aug 2026 15:05:16 GMT*
+
+
+### [2026 LiveLaw (SC) 822 | HEMANT KUMAR & ORS. VERSUS STATE OF HARYANA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-822-hemant-kumar-ors-versus-state-of-haryana-546334)
+*Published on: Tue, 18 Aug 2026 14:58:59 GMT*
+
+
+### [2026 LiveLaw (SC) 821 | The New India Assurance Company Limited & Ors. v M/S Louis Dreyfus Commodities India Pvt. Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-821-the-new-india-assurance-company-limited-ors-v-ms-louis-dreyfus-commodities-india-pvt-ltd-546325)
+*Published on: Tue, 18 Aug 2026 14:11:26 GMT*
+
+
+### [2026 LiveLaw (SC) 820 | GOPI @ SAHAYA PURUNA VERSUS THE STATE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-820-gopi-sahaya-puruna-versus-the-state-546317)
+*Published on: Tue, 18 Aug 2026 13:36:01 GMT*
+
+
+### [2026 LiveLaw (SC) 819 | SIYARAM EDUCATION SOCIETY VERSUS CHHAYA D/O BALIRAM DHAVE & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-819-siyaram-education-society-versus-chhaya-do-baliram-dhave-ors-546260)
+*Published on: Tue, 18 Aug 2026 09:32:17 GMT*
+
+
+### [2026 LiveLaw (SC) 818 | M/s Santosh Associate Private Limited v. Haryana State Industrial and Infrastructure Development Corporation Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-818-ms-santosh-associate-private-limited-v-haryana-state-industrial-and-infrastructure-development-corporation-ltd-546217)
+*Published on: Tue, 18 Aug 2026 05:36:26 GMT*
+
