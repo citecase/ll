@@ -2623,3 +2623,34 @@
 ### [2026 LiveLaw (SC) 818 | M/s Santosh Associate Private Limited v. Haryana State Industrial and Infrastructure Development Corporation Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-818-ms-santosh-associate-private-limited-v-haryana-state-industrial-and-infrastructure-development-corporation-ltd-546217)
 *Published on: Tue, 18 Aug 2026 05:36:26 GMT*
 
+### [2026 LiveLaw (SC) 831 |  SINGAPOGU BABU RAO & ORS. VERSUS SPECIAL DEPUTY COLLECTOR (LAND ACQUISITION) & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-831-singapogu-babu-rao-ors-versus-special-deputy-collector-land-acquisition-ors-546541)
+*Published on: Wed, 19 Aug 2026 14:12:46 GMT*
+
+
+### [2026 LiveLaw (SC) 830  |  Rafikmiya Ahmedmiya Malek v State of Gujarat](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-830-rafikmiya-ahmedmiya-malek-v-state-of-gujarat-546537)
+*Published on: Wed, 19 Aug 2026 14:07:02 GMT*
+
+
+### [2026 LiveLaw (SC) 829 | PRAMOD KUMAR SHUKLA VERSUS STATE OF UTTAR PRADESH AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-829-pramod-kumar-shukla-versus-state-of-uttar-pradesh-and-others-546533)
+*Published on: Wed, 19 Aug 2026 14:01:59 GMT*
+
+
+### [2026 LiveLaw (SC) 828 |  THE STATE OF MAHARASHTRA & ORS. VERSUS SUDHAKAR SHIVARAM TEKE & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-828-the-state-of-maharashtra-ors-versus-sudhakar-shivaram-teke-ors-546494)
+*Published on: Wed, 19 Aug 2026 11:01:03 GMT*
+
+
+### [2026 LiveLaw (SC) 827 | Cynthia Julious Charlie v The Vice Chancellor & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-826-546466)
+*Published on: Wed, 19 Aug 2026 09:45:58 GMT*
+
+
+### [2026 LiveLaw (SC) 826 | BAPPA BARAI VERSUS UNION OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-826-bappa-barai-versus-union-of-india-ors-546463)
+*Published on: Wed, 19 Aug 2026 09:22:24 GMT*
+
+
+### [2026 LiveLaw (SC) 815 | M/S. UTKARSH ENTERPRISES & ORS. VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-815-ms-utkarsh-enterprises-ors-versus-union-of-india-ors-546423)
+*Published on: Wed, 19 Aug 2026 06:21:07 GMT*
+
+
+### [2026 LiveLaw (SC) 824 | RAVI KANT GUPTA VERSUS STATE OF UTTAR PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-824-ravi-kant-gupta-versus-state-of-uttar-pradesh-ors-546411)
+*Published on: Wed, 19 Aug 2026 05:46:50 GMT*
+
