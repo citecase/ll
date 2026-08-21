@@ -2654,3 +2654,26 @@
 ### [2026 LiveLaw (SC) 824 | RAVI KANT GUPTA VERSUS STATE OF UTTAR PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-824-ravi-kant-gupta-versus-state-of-uttar-pradesh-ors-546411)
 *Published on: Wed, 19 Aug 2026 05:46:50 GMT*
 
+### [2026 LiveLaw (SC) 837 |Ramkrishna Chauhan v State of Uttar Pradesh & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-837-ramkrishna-chauhan-v-state-of-uttar-pradesh-anr-546723)
+*Published on: Thu, 20 Aug 2026 14:20:54 GMT*
+
+
+### [2026 LiveLaw (SC) 836 | Shiv Pratap Singh Alias Chinu Versus State of U.P & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-836-shiv-pratap-singh-alias-chinu-versus-state-of-up-ors-546720)
+*Published on: Thu, 20 Aug 2026 14:09:12 GMT*
+
+
+### [2026 LiveLaw (SC) 834 | K Suman Chandra v Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-834-k-suman-chandra-v-union-of-india-ors-546681)
+*Published on: Thu, 20 Aug 2026 12:11:29 GMT*
+
+
+### [2026 LiveLaw (SC) 835 | Patel Joshnaben Pravinkumar Patel & Ors. v State of Gujarat & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-835-patel-joshnaben-pravinkumar-patel-ors-v-state-of-gujarat-anr-546656)
+*Published on: Thu, 20 Aug 2026 10:29:40 GMT*
+
+
+### [2026 LiveLaw (SC) 833 |  M/S TVS MOTOR COMPANY LIMITED Versus COMMISSIONER OF CENTRAL EXCISE, CHENNAI-III](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-833-ms-tvs-motor-company-limited-versus-commissioner-of-central-excise-chennai-iii-546584)
+*Published on: Thu, 20 Aug 2026 05:04:34 GMT*
+
+
+### [2026 LiveLaw (SC) 832 | Reena v The Managing Director, Karnataka State Road Transport Corporation & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-832-reena-v-the-managing-director-karnataka-state-road-transport-corporation-ors-546576)
+*Published on: Thu, 20 Aug 2026 04:54:34 GMT*
+
