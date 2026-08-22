@@ -2677,3 +2677,38 @@
 ### [2026 LiveLaw (SC) 832 | Reena v The Managing Director, Karnataka State Road Transport Corporation & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-832-reena-v-the-managing-director-karnataka-state-road-transport-corporation-ors-546576)
 *Published on: Thu, 20 Aug 2026 04:54:34 GMT*
 
+### [2026 LiveLaw (SC) 846 | REHANA KHAN VS. RIZWAN SIDDHIQUEE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-846-rehana-khan-vs-rizwan-siddhiquee-546896)
+*Published on: Fri, 21 Aug 2026 13:15:50 GMT*
+
+
+### [2026 LiveLaw (SC) 845 | SPO/CONSTABLE IRB SATPAL SINGH VERSUS STATE OF PUNJAB & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-845-spoconstable-irb-satpal-singh-versus-state-of-punjab-ors-546886)
+*Published on: Fri, 21 Aug 2026 12:19:17 GMT*
+
+
+### [2026 LiveLaw (SC) 844 |  RAVI KUMAR SINGH MALHOTRA VERSUS THE STATE OF MADHYA PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-844-ravi-kumar-singh-malhotra-versus-the-state-of-madhya-pradesh-546879)
+*Published on: Fri, 21 Aug 2026 12:12:01 GMT*
+
+
+### [2026 LiveLaw (SC) 843 | JAMNABAI AND OTHERS VERSUS VASUDEV AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-843-jamnabai-and-others-versus-vasudev-and-others-546830)
+*Published on: Fri, 21 Aug 2026 08:47:27 GMT*
+
+
+### [2026 LiveLaw(SC) 842 | THE STATE OF UTTAR PRADESH Vs BRIJ PAL SINGH](https://www.livelaw.in/sc-judgments/2026-livelawsc-842-the-state-of-uttar-pradesh-vs-brij-pal-singh-546818)
+*Published on: Fri, 21 Aug 2026 07:52:49 GMT*
+
+
+### [2026 LiveLaw (SC) 841 |  Bhumika Trust v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-841-bhumika-trust-v-union-of-india-546815)
+*Published on: Fri, 21 Aug 2026 13:05:53 GMT*
+
+
+### [2026 LiveLaw (SC) 840 | Chandan v. State of Jharkhand & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-840-chandan-v-state-of-jharkhand-ors-546805)
+*Published on: Fri, 21 Aug 2026 06:57:54 GMT*
+
+
+### [2026 LiveLaw (SC) 839 | Sujata Kumari & Ors v Rahul Kumar & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-839-sujata-kumari-ors-v-rahul-kumar-anr-546799)
+*Published on: Fri, 21 Aug 2026 06:42:59 GMT*
+
+
+### [2026 LiveLaw (SC) 838 | SHAILENDRA KUMAR PATEL VERSUS STATE OF CHHATTISGARH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-838-shailendra-kumar-patel-versus-state-of-chhattisgarh-ors-546773)
+*Published on: Fri, 21 Aug 2026 04:53:13 GMT*
+
