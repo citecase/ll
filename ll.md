@@ -2712,3 +2712,6 @@
 ### [2026 LiveLaw (SC) 838 | SHAILENDRA KUMAR PATEL VERSUS STATE OF CHHATTISGARH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-838-shailendra-kumar-patel-versus-state-of-chhattisgarh-ors-546773)
 *Published on: Fri, 21 Aug 2026 04:53:13 GMT*
 
+### [2026 LiveLaw (SC) 847 |  VYAKTI VIKAS KENDRA INDIA v MANOJ MISRA (DEAD) AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-847-vyakti-vikas-kendra-india-v-manoj-misra-dead-and-ors-546977)
+*Published on: Sat, 22 Aug 2026 15:05:09 GMT*
+
