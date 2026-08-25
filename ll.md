@@ -2730,3 +2730,14 @@
 ### [2026 LiveLaw (SC) 848 | STATE OF U.P. Vs JAI BIR SINGH |](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-848-state-of-up-vs-jai-bir-singh-546993)
 *Published on: Sun, 23 Aug 2026 04:57:25 GMT*
 
+### [2026 LiveLaw (SC) 854 | Reji Baby v Subi Mary](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-854-reji-baby-v-subi-mary-547204)
+*Published on: Mon, 24 Aug 2026 14:20:24 GMT*
+
+
+### [2026 LiveLaw (SC) 853 |  R.J. GAJENDRA KUMAR VERSUS GOVERNMENT OF TAMIL NADU AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-853-rj-gajendra-kumar-versus-government-of-tamil-nadu-and-anr-547127)
+*Published on: Mon, 24 Aug 2026 08:39:56 GMT*
+
+
+### [2026 LiveLaw (SC) 852 | M/s G.R. Infra Projects Limited Ratlam v. State of Madhya Pradesh & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-852-ms-gr-infra-projects-limited-ratlam-v-state-of-madhya-pradesh-ors-547064)
+*Published on: Mon, 24 Aug 2026 05:13:02 GMT*
+
