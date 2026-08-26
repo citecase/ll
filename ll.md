@@ -2741,3 +2741,30 @@
 ### [2026 LiveLaw (SC) 852 | M/s G.R. Infra Projects Limited Ratlam v. State of Madhya Pradesh & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-852-ms-gr-infra-projects-limited-ratlam-v-state-of-madhya-pradesh-ors-547064)
 *Published on: Mon, 24 Aug 2026 05:13:02 GMT*
 
+### [2026 LiveLaw (SC) 861 | The Oriental Insurance Co. Ltd. v. Tuni Pati & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-861-the-oriental-insurance-co-ltd-v-tuni-pati-ors-547390)
+*Published on: Tue, 25 Aug 2026 14:45:17 GMT*
+
+
+### [2026 LiveLaw (SC) 860 | ARUN KUMAR MANDAL @ ARUN MANDAL VERSUS THE STATE OF JHARKHAND](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-860-arun-kumar-mandal-arun-mandal-versus-the-state-of-jharkhand-547368)
+*Published on: Tue, 25 Aug 2026 12:35:38 GMT*
+
+
+### [2026 LiveLaw (SC) 859 | ASHWINI ANANTRAO DESHPANDE VERSUS STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-859-ashwini-anantrao-deshpande-versus-state-of-maharashtra-547323)
+*Published on: Tue, 25 Aug 2026 10:21:12 GMT*
+
+
+### [2026 LiveLaw (SC) 858 | STATE OF U.P. v. AJMAL BEG ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-858-state-of-up-v-ajmal-beg-etc-547317)
+*Published on: Tue, 25 Aug 2026 09:53:14 GMT*
+
+
+### [2026 LiveLaw (SC) 857 | HAFIZ RASHID AHMED CHOUDHURY v KRIPANATH MALLAH AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-856-hafiz-rashid-ahmed-choudhury-v-kripanath-mallah-and-ors-547250)
+*Published on: Tue, 25 Aug 2026 05:01:34 GMT*
+
+
+### [2026 LiveLaw (SC) 856 | STATE OF MAHARASHTRA VS. PRUTHVIRAJ RAJENDRA SHINDE & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-856-state-of-maharashtra-vs-pruthviraj-rajendra-shinde-anr-547246)
+*Published on: Tue, 25 Aug 2026 04:52:43 GMT*
+
+
+### [2026 LiveLaw (SC) 855 | NEELAM SHARMA AND OTHERS VERSUS AMITA PASSAN AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-855-neelam-sharma-and-others-versus-amita-passan-and-others-547240)
+*Published on: Tue, 25 Aug 2026 04:36:49 GMT*
+
