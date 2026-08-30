@@ -2775,3 +2775,22 @@
 ### [2026 LiveLaw (SC) 862 | M/s Tata Steel Limited v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-862-ms-tata-steel-limited-v-union-of-india-547454)
 *Published on: Wed, 26 Aug 2026 07:15:49 GMT*
 
+### [2026 LiveLaw (SC) 868 | M/s Circar Paper Mills Ltd. v. District Collector, Nellore Distt. & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-868-ms-circar-paper-mills-ltd-v-district-collector-nellore-distt-ors-547765)
+*Published on: Sat, 29 Aug 2026 14:10:20 GMT*
+
+
+### [2026 LiveLaw (SC) 867 |  WILDLIFE RESCUE AND REHABILITATION CENTRE AND ORS. v. UNION OF INDIA AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-867-wildlife-rescue-and-rehabilitation-centre-and-ors-v-union-of-india-and-ors-547756)
+*Published on: Sat, 29 Aug 2026 08:59:44 GMT*
+
+
+### [2026 LiveLaw (SC) 866 | SIKKIMESE MULNIWASI SURAKCHA SANGH (SMSS), A REGISTERED PUBLIC TRUST v. ELECTION COMMISSION OF INDIA AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-866-sikkimese-mulniwasi-surakcha-sangh-smss-a-registered-public-trust-v-election-commission-of-india-and-ors-547755)
+*Published on: Sat, 29 Aug 2026 08:55:18 GMT*
+
+
+### [2026 LiveLaw (SC) 865 | TOFIK SHAIKH Versus STATE OF GUJARAT AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-865-tofik-shaikh-versus-state-of-gujarat-and-ors-547753)
+*Published on: Sat, 29 Aug 2026 08:52:43 GMT*
+
+
+### [2026 LiveLaw (SC) 864 |  Lucknow Development Authority v. Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-864-lucknow-development-authority-v-union-of-india-ors-547745)
+*Published on: Sat, 29 Aug 2026 08:24:24 GMT*
+
