@@ -2794,3 +2794,6 @@
 ### [2026 LiveLaw (SC) 864 |  Lucknow Development Authority v. Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-864-lucknow-development-authority-v-union-of-india-ors-547745)
 *Published on: Sat, 29 Aug 2026 08:24:24 GMT*
 
+### [2026 LiveLaw (SC) 869 | Harinder Singh Sodhi Versus State of Rajasthan and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-869-harinder-singh-sodhi-versus-state-of-rajasthan-and-ors-547790)
+*Published on: Sun, 30 Aug 2026 04:52:36 GMT*
+
