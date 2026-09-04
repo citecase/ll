@@ -2870,3 +2870,22 @@
 ### [2026 LiveLaw (SC) 882 | V. Balakrishnan Versus State](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-882-v-balakrishnan-versus-state-548209)
 *Published on: Wed, 02 Sep 2026 05:07:16 GMT*
 
+### [2026 LiveLaw (SC) 893 | The Authorised Representative for Granite Gate Properties Private Limited Rakesh Verma Versus M/s New Okhla Industrial Development Authority and Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-893-the-authorised-representative-for-granite-gate-properties-private-limited-rakesh-verma-versus-ms-new-okhla-industrial-development-authority-and-ors-548530)
+*Published on: Thu, 03 Sep 2026 15:16:56 GMT*
+
+
+### [2026 LiveLaw (SC) 892 | Mahavir @ Anvish v State of Madhya Pradesh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-892-mahavir-anvish-v-state-of-madhya-pradesh-548480)
+*Published on: Thu, 03 Sep 2026 10:34:17 GMT*
+
+
+### [2026 LiveLaw (SC) 891 |  Edelweiss Custodial Services Limited v. NSE Clearing Ltd. & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-891-edelweiss-custodial-services-limited-v-nse-clearing-ltd-anr-548454)
+*Published on: Thu, 03 Sep 2026 09:23:29 GMT*
+
+
+### [2026 LiveLaw (SC) 890  | R Manimaran v State of Tamil Nadu](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-890-r-manimaran-v-state-of-tamil-nadu-548402)
+*Published on: Thu, 03 Sep 2026 06:08:13 GMT*
+
+
+### [2026 LiveLaw (SC) 889 | M.R.R. Setty (Dead), by LRs Versus Government of Karnataka and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-889-mrr-setty-dead-by-lrs-versus-government-of-karnataka-and-others-548380)
+*Published on: Thu, 03 Sep 2026 04:55:22 GMT*
+
