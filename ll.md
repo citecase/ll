@@ -2889,3 +2889,18 @@
 ### [2026 LiveLaw (SC) 889 | M.R.R. Setty (Dead), by LRs Versus Government of Karnataka and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-889-mrr-setty-dead-by-lrs-versus-government-of-karnataka-and-others-548380)
 *Published on: Thu, 03 Sep 2026 04:55:22 GMT*
 
+### [2026 LiveLaw (SC) 897 | Reliance General Insurance Company v Priyanka Das & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-897-reliance-general-insurance-company-v-priyanka-das-ors-548648)
+*Published on: Fri, 04 Sep 2026 13:05:05 GMT*
+
+
+### [2026 LiveLaw (SC) 896 |  M/S. AMALGAM STEELS AND POWER LTD. AND ANR. VERSUS ENERGY WATCHDOG AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-896-ms-amalgam-steels-and-power-ltd-and-anr-versus-energy-watchdog-and-ors-548645)
+*Published on: Fri, 04 Sep 2026 12:41:31 GMT*
+
+
+### [2026 LiveLaw (SC) 895 | SANDEEP S. GHANDAT & ORS. VERSUS RESERVE BANK OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-895-sandeep-s-ghandat-ors-versus-reserve-bank-of-india-ors-548617)
+*Published on: Fri, 04 Sep 2026 09:17:59 GMT*
+
+
+### [2026 LiveLaw (SC) 894 |  THE NATIONAL COUNCIL FOR TEACHERS EDUCATION VERSUS ASSOCIATION OF NCTE APPROVED COLLEGES TRUST AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-894-the-national-council-for-teachers-education-versus-association-of-ncte-approved-colleges-trust-and-ors-548566)
+*Published on: Fri, 04 Sep 2026 05:17:24 GMT*
+
