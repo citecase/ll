@@ -2904,3 +2904,22 @@
 ### [2026 LiveLaw (SC) 894 |  THE NATIONAL COUNCIL FOR TEACHERS EDUCATION VERSUS ASSOCIATION OF NCTE APPROVED COLLEGES TRUST AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-894-the-national-council-for-teachers-education-versus-association-of-ncte-approved-colleges-trust-and-ors-548566)
 *Published on: Fri, 04 Sep 2026 05:17:24 GMT*
 
+### [2026 LiveLaw (SC) 901 | Sanjay Kumar v State of Himachal Pradesh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-901-sanjay-kumar-v-state-of-himachal-pradesh-548726)
+*Published on: Sat, 05 Sep 2026 09:33:13 GMT*
+
+
+### [Acquittal Cannot Be Reversed Unless Trial Court's View Is Perverse or Impossible: Supreme Court](https://www.livelaw.in/sc-judgments/supreme-court-restores-husband-acquittal-wife-suicide-case-says-548725)
+*Published on: Sat, 05 Sep 2026 09:32:23 GMT*
+
+
+### [2026 LiveLaw (SC) 900 | DR. HARISH CHANDRA TIWARI VERSUS UNION OF INDIA & OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-900-dr-harish-chandra-tiwari-versus-union-of-india-others-548723)
+*Published on: Sat, 05 Sep 2026 09:24:29 GMT*
+
+
+### [2026 LiveLaw (SC) 899 |  Kondapaka Sridhar @ Shekar @ Madhu @ Gopi @ Chinna v State of Telangana](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-899-kondapaka-sridhar-shekar-madhu-gopi-chinna-v-state-of-telangana-548673)
+*Published on: Sat, 05 Sep 2026 05:12:13 GMT*
+
+
+### [2026 LiveLaw (SC) 898 | SHIRISH PANDHARINATH PATIL VERSUS THE STATE OF MAHARASHTRA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-898-shirish-pandharinath-patil-versus-the-state-of-maharashtra-ors-548668)
+*Published on: Sat, 05 Sep 2026 04:27:59 GMT*
+
