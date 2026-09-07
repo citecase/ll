@@ -2923,3 +2923,6 @@
 ### [2026 LiveLaw (SC) 898 | SHIRISH PANDHARINATH PATIL VERSUS THE STATE OF MAHARASHTRA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-898-shirish-pandharinath-patil-versus-the-state-of-maharashtra-ors-548668)
 *Published on: Sat, 05 Sep 2026 04:27:59 GMT*
 
+### [2026 LiveLaw (SC) 902 | SWARNPREET KAUR & ANR. v. STATE OF HARYANA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-902-swarnpreet-kaur-anr-v-state-of-haryana-and-others-548776)
+*Published on: Sun, 06 Sep 2026 10:20:20 GMT*
+
