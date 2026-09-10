@@ -2976,3 +2976,22 @@
 ### [2026 LiveLaw (SC) 906 | Dhanraj v. State of Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-906-dhanraj-v-state-of-rajasthan-549017)
 *Published on: Tue, 08 Sep 2026 04:50:21 GMT*
 
+### [2026 LiveLaw (SC) 920  | In Re: Social Science Textbook for Grade–8 (Part-2) Published by NCERT and Ancillary Issues](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-920-in-re-social-science-textbook-for-grade8-part-2-published-by-ncert-and-ancillary-issues-549449)
+*Published on: Wed, 09 Sep 2026 15:08:04 GMT*
+
+
+### [2026 LiveLaw (SC) 919 | Securities and Exchange Board of India v Vedanta Limited & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-919-securities-and-exchange-board-of-india-v-vedanta-limited-ors-549426)
+*Published on: Wed, 09 Sep 2026 13:54:56 GMT*
+
+
+### [2026 LiveLaw (SC) 918  | V. SUMITRA REDDY & ANR. VERSUS K. RANGANADHA REDDY & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-918-v-sumitra-reddy-anr-versus-k-ranganadha-reddy-ors-549424)
+*Published on: Wed, 09 Sep 2026 13:46:43 GMT*
+
+
+### [2026 LiveLaw (SC) 917 | Ashok Upadhyay & Anr v State of of Bihar](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-917-ashok-upadhyay-anr-v-state-of-of-bihar-549374)
+*Published on: Wed, 09 Sep 2026 10:43:42 GMT*
+
+
+### [2026 LiveLaw (SC) 916 | Khanindra Kr Dutta v Central Bureau of Investigation](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-916-khanindra-kr-dutta-v-central-bureau-of-investigation-549326)
+*Published on: Wed, 09 Sep 2026 07:22:50 GMT*
+
