@@ -2995,3 +2995,22 @@
 ### [2026 LiveLaw (SC) 916 | Khanindra Kr Dutta v Central Bureau of Investigation](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-916-khanindra-kr-dutta-v-central-bureau-of-investigation-549326)
 *Published on: Wed, 09 Sep 2026 07:22:50 GMT*
 
+### [2026 LiveLaw (SC) 925 | Kunal Rameshbhai Kalyani v State of Gujarat & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-925-kunal-rameshbhai-kalyani-v-state-of-gujarat-anr-549641)
+*Published on: Thu, 10 Sep 2026 15:40:10 GMT*
+
+
+### [2026 LiveLaw (SC) 924 | PYNCHEMALANGAKI BAREH VERSUS STATE OF MEGHALAYA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-924-pynchemalangaki-bareh-versus-state-of-meghalaya-549627)
+*Published on: Thu, 10 Sep 2026 14:52:02 GMT*
+
+
+### [2026 LiveLaw (SC) 923 | Bhag Singh (dead) through Mahant Kashmir Singh v Basant Kaur (dead) through LRs & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-923-bhag-singh-dead-through-mahant-kashmir-singh-v-basant-kaur-dead-through-lrs-ors-549623)
+*Published on: Thu, 10 Sep 2026 14:41:45 GMT*
+
+
+### [2026 LiveLaw (SC) 922 |  INDIAN KAYAKING AND CANOEING ASSOCIATION Versus UNION TERRITORY OF J&K AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-922-indian-kayaking-and-canoeing-association-versus-union-territory-of-jk-and-ors-549612)
+*Published on: Thu, 10 Sep 2026 14:05:52 GMT*
+
+
+### [2026 LiveLaw (SC) 921 |  S.S. DAS VS. UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-921-ss-das-vs-union-of-india-549477)
+*Published on: Thu, 10 Sep 2026 04:46:41 GMT*
+
