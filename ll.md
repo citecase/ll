@@ -3032,3 +3032,6 @@
 ### [2026 LiveLaw (SC) 929 |  DAKSCHINANCHAL VIDYUT VITRAN NIGAM LTD. VERSUS VIDUT LOKPAL, UTTAR PRADESH AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-929-dakschinanchal-vidyut-vitran-nigam-ltd-versus-vidut-lokpal-uttar-pradesh-and-others-549828)
 *Published on: Sat, 12 Sep 2026 06:07:17 GMT*
 
+### [2026 LiveLaw (SC) 932 | ABU SALEM ABDUL QAYOOM ANSARI Vs THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-932-abu-salem-abdul-qayoom-ansari-vs-the-state-of-maharashtra-549933)
+*Published on: Mon, 14 Sep 2026 05:32:10 GMT*
+
