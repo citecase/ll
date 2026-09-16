@@ -3035,3 +3035,18 @@
 ### [2026 LiveLaw (SC) 932 | ABU SALEM ABDUL QAYOOM ANSARI Vs THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-932-abu-salem-abdul-qayoom-ansari-vs-the-state-of-maharashtra-549933)
 *Published on: Mon, 14 Sep 2026 05:32:10 GMT*
 
+### [2026 LiveLaw (SC) 935 |  UNION OF INDIA & ORS. VERSUS COL. NC ISAAC](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-935-union-of-india-ors-versus-col-nc-isaac-550196)
+*Published on: Wed, 16 Sep 2026 03:30:45 GMT*
+
+
+### [2026 LiveLaw (SC) 934 |  ZAKI ULLAH KHAN VERSUS STATE OF U.P.AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-934-zaki-ullah-khan-versus-state-of-upand-ors-550186)
+*Published on: Tue, 15 Sep 2026 15:41:34 GMT*
+
+
+### [2026 LiveLaw (SC) 933 | M/s Kerala Industrial Infrastructure Development Corporation v Central Board of Trustees and Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-933-ms-kerala-industrial-infrastructure-development-corporation-v-central-board-of-trustees-and-anr-550177)
+*Published on: Tue, 15 Sep 2026 14:21:28 GMT*
+
+
+### [2026 LiveLaw (SC) 932 | KK Praveen v JM Financial Asset Reconstruction Company P Ltd & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-932-kk-praveen-v-jm-financial-asset-reconstruction-company-p-ltd-ors-550166)
+*Published on: Tue, 15 Sep 2026 12:48:08 GMT*
+
