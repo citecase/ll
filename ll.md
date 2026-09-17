@@ -3050,3 +3050,38 @@
 ### [2026 LiveLaw (SC) 932 | KK Praveen v JM Financial Asset Reconstruction Company P Ltd & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-932-kk-praveen-v-jm-financial-asset-reconstruction-company-p-ltd-ors-550166)
 *Published on: Tue, 15 Sep 2026 12:48:08 GMT*
 
+### [2026 LiveLaw (SC) 944 | Assistant Commissioner of Income Tax & Anr. v. M/s. Omaxe Limited](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-944-assistant-commissioner-of-income-tax-anr-v-ms-omaxe-limited-550365)
+*Published on: Wed, 16 Sep 2026 14:21:57 GMT*
+
+
+### [2026 LiveLaw (SC) 943 | SWATI SINHA & ORS. v UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-943-swati-sinha-ors-v-union-of-india-550363)
+*Published on: Wed, 16 Sep 2026 14:16:49 GMT*
+
+
+### [2026 LiveLaw (SC) 942 | Hari Dutta Sharma v State of UP & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-942-hari-dutta-sharma-v-state-of-up-ors-550358)
+*Published on: Wed, 16 Sep 2026 14:01:28 GMT*
+
+
+### [2026 LiveLaw (SC) 941 | THE STATE OF TELANGANA AND OTHERS VERSUS M.A. GARDEN FUNCTION HALL AND OTHERS ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-941-the-state-of-telangana-and-others-versus-ma-garden-function-hall-and-others-etc-550345)
+*Published on: Wed, 16 Sep 2026 12:57:17 GMT*
+
+
+### [2026 LiveLaw (SC) 940 | K Rashik v National Insurance Company Ltd & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-940-k-rashik-v-national-insurance-company-ltd-anr-550316)
+*Published on: Wed, 16 Sep 2026 11:27:48 GMT*
+
+
+### [2026 LiveLaw (SC) 939 | JAYA THAKUR VERSUS GOVERNMENT OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-939-jaya-thakur-versus-government-of-india-ors-550259)
+*Published on: Wed, 16 Sep 2026 07:14:41 GMT*
+
+
+### [2026 LiveLaw (SC) 938 | Jothydev Kesavadev v Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-938-jothydev-kesavadev-v-union-of-india-550252)
+*Published on: Wed, 16 Sep 2026 06:55:32 GMT*
+
+
+### [2026 LiveLaw (SC) 937 | Uttar Pradesh Subordinate Service Selection Commission v Ashok Yadav & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-937-uttar-pradesh-subordinate-service-selection-commission-v-ashok-yadav-ors-550220)
+*Published on: Wed, 16 Sep 2026 05:07:27 GMT*
+
+
+### [2026 LiveLaw (SC) 936 | Madasa Masih-UI-Uloom Educational and Charitable Trust Versus State of Karnataka & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-936-madasa-masih-ui-uloom-educational-and-charitable-trust-versus-state-of-karnataka-ors-550214)
+*Published on: Wed, 16 Sep 2026 04:53:20 GMT*
+
