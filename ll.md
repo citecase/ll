@@ -3112,3 +3112,22 @@
 ### [2026 LiveLaw (SC) 945 | BHARAT RAJ MEENA VERSUS CENTRAL BUREAU OF INVESTIGATION](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-945-bharat-raj-meena-versus-central-bureau-of-investigation-550410)
 *Published on: Thu, 17 Sep 2026 04:33:33 GMT*
 
+### [2026 LiveLaw (SC) 956 | Sheo Kumar Singh & Others v M/s Sharda Educational Society & Others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-956-sheo-kumar-singh-others-v-ms-sharda-educational-society-others-550756)
+*Published on: Fri, 18 Sep 2026 14:12:57 GMT*
+
+
+### [2026 LiveLaw (SC) 955 | S. PANCHALINGU & ORS. VERSUS PEOPLE'S EDUCATION TRUST (R) & OTHERS ETC](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-955-s-panchalingu-ors-versus-peoples-education-trust-r-others-etc-550752)
+*Published on: Fri, 18 Sep 2026 14:08:02 GMT*
+
+
+### [2026 LiveLaw (SC) 954 | M/S BALAJI FORMALIN PVT. LTD. & ANR. VERSUS UNION OF INDIA & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-954-ms-balaji-formalin-pvt-ltd-anr-versus-union-of-india-anr-550741)
+*Published on: Fri, 18 Sep 2026 13:53:59 GMT*
+
+
+### [2026 LiveLaw (SC) 953 | Surender Kumar Versus State of Haryana & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-953-surender-kumar-versus-state-of-haryana-ors-550706)
+*Published on: Fri, 18 Sep 2026 11:08:04 GMT*
+
+
+### [2026 LiveLaw (SC) 952 | Deepak in JC v State Govt. of NCT Delhi](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-952-deepak-in-jc-v-state-govt-of-nct-delhi-550579)
+*Published on: Fri, 18 Sep 2026 03:46:46 GMT*
+
