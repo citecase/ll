@@ -3138,3 +3138,18 @@
 ### [2026 LiveLaw (SC) 957 | Rasilaben & Anr. v Dinesh Deumal Harani & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-957-rasilaben-anr-v-dinesh-deumal-harani-ors-550784)
 *Published on: Sat, 19 Sep 2026 04:26:51 GMT*
 
+### [2026 LiveLaw (SC) 962 | Sobaran Singh (Dead) Through Lrs. Versus Gordhan Singh (Dead) Thr. Lrs.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-962-sobaran-singh-dead-through-lrs-versus-gordhan-singh-dead-thr-lrs-550931)
+*Published on: Sun, 20 Sep 2026 09:28:43 GMT*
+
+
+### [2026 LiveLaw (SC) 961 | M/s Oil and Natural Gas Corporation Ltd v Suryakand D Lad & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-961-ms-oil-and-natural-gas-corporation-ltd-v-suryakand-d-lad-ors-550929)
+*Published on: Sun, 20 Sep 2026 09:06:24 GMT*
+
+
+### [2026 LiveLaw (SC) 960 | ORIENT CRAFTS LIMITED VERSUS COMMISSIONER OF INCOME TAX](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-960-orient-crafts-limited-versus-commissioner-of-income-tax-550927)
+*Published on: Sun, 20 Sep 2026 08:45:30 GMT*
+
+
+### [2026 LiveLaw (SC) 959 | Kartika @ Kirtan @ Kirtan Charan Jena & Anr Etc. v The State of Odisha](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-959-kartika-kirtan-kirtan-charan-jena-anr-etc-v-the-state-of-odisha-550925)
+*Published on: Sun, 20 Sep 2026 07:31:33 GMT*
+
