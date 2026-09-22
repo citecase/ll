@@ -3153,3 +3153,26 @@
 ### [2026 LiveLaw (SC) 959 | Kartika @ Kirtan @ Kirtan Charan Jena & Anr Etc. v The State of Odisha](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-959-kartika-kirtan-kirtan-charan-jena-anr-etc-v-the-state-of-odisha-550925)
 *Published on: Sun, 20 Sep 2026 07:31:33 GMT*
 
+### [2026 LiveLaw (SC) 968 |  I.S.D.S. Private Limited & Anr. Versus M/s Khemka Food Products Pvt. Ltd. & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-968-isds-private-limited-anr-versus-ms-khemka-food-products-pvt-ltd-anr-551143)
+*Published on: Mon, 21 Sep 2026 15:25:13 GMT*
+
+
+### [2026 LiveLaw (SC) 967 | JASKARAN JEET SINGH DEOL v STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-967-jaskaran-jeet-singh-deol-v-state-of-punjab-551141)
+*Published on: Mon, 21 Sep 2026 15:21:18 GMT*
+
+
+### [2026 LiveLaw (SC) 966 | THE STATE OF MAHARASHTRA & ANR. VERSUS MOMIN MOIUDDIN GULAM HASAN @ MOIN MISTRI & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-966-the-state-of-maharashtra-anr-versus-momin-moiuddin-gulam-hasan-moin-mistri-anr-551129)
+*Published on: Mon, 21 Sep 2026 14:25:38 GMT*
+
+
+### [2026 LiveLaw (SC) 965 | AYESHA JAIN VERSUS AMITY UNIVERSITY, NOIDA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-965-ayesha-jain-versus-amity-university-noida-ors-551112)
+*Published on: Mon, 21 Sep 2026 13:14:02 GMT*
+
+
+### [2026 LiveLaw (SC) 964 | John Mathew v Santha Paul & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-964-john-mathew-v-santha-paul-ors-551108)
+*Published on: Mon, 21 Sep 2026 12:55:24 GMT*
+
+
+### [2026 LiveLaw (SC) 963 | Arth Micro Finance Private Ltd. And Ors. Versus Shivalik Small Finance Bank Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-963-arth-micro-finance-private-ltd-and-ors-versus-shivalik-small-finance-bank-ltd-551073)
+*Published on: Mon, 21 Sep 2026 11:03:11 GMT*
+
