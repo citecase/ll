@@ -3176,3 +3176,26 @@
 ### [2026 LiveLaw (SC) 963 | Arth Micro Finance Private Ltd. And Ors. Versus Shivalik Small Finance Bank Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-963-arth-micro-finance-private-ltd-and-ors-versus-shivalik-small-finance-bank-ltd-551073)
 *Published on: Mon, 21 Sep 2026 11:03:11 GMT*
 
+### [2026 LiveLaw (SC) 974 | GANAPATI (DEAD) BY HIS LRS VERSUS PRABHAKAR & OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-974-ganapati-dead-by-his-lrs-versus-prabhakar-others-551317)
+*Published on: Tue, 22 Sep 2026 14:24:53 GMT*
+
+
+### [2026 LiveLaw (SC) 973 | ANTONETTO J D'SOUZA VERSUS ALDILA BRAGANZA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-973-antonetto-j-dsouza-versus-aldila-braganza-and-others-551304)
+*Published on: Tue, 22 Sep 2026 14:01:19 GMT*
+
+
+### [2026 LiveLaw (SC) 972 | THE STATE OF HIMACHAL PRADESH VERSUS VARINDER VERMA @ JATTI & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-972-the-state-of-himachal-pradesh-versus-varinder-verma-jatti-anr-551274)
+*Published on: Tue, 22 Sep 2026 11:54:24 GMT*
+
+
+### [2026 LiveLaw (SC) 971 | MICKY TRADERS Versus L.R.Y. LABOUR CONTRACTOR & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-971-micky-traders-versus-lry-labour-contractor-ors-551272)
+*Published on: Tue, 22 Sep 2026 11:46:06 GMT*
+
+
+### [2026 LiveLaw (SC) 970 |  Kusumavati Gowda Vs. The Government of Karnataka & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-970-kusumavati-gowda-vs-the-government-of-karnataka-ors-551219)
+*Published on: Tue, 22 Sep 2026 08:47:56 GMT*
+
+
+### [2026 LiveLaw (SC) 969 | M/s New India Assurance Company Ltd v M/s Hemkund Duplex and Board Pvt Ltd](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-969-ms-new-india-assurance-company-ltd-v-ms-hemkund-duplex-and-board-pvt-ltd-551175)
+*Published on: Tue, 22 Sep 2026 05:35:20 GMT*
+
