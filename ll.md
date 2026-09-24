@@ -3199,3 +3199,18 @@
 ### [2026 LiveLaw (SC) 969 | M/s New India Assurance Company Ltd v M/s Hemkund Duplex and Board Pvt Ltd](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-969-ms-new-india-assurance-company-ltd-v-ms-hemkund-duplex-and-board-pvt-ltd-551175)
 *Published on: Tue, 22 Sep 2026 05:35:20 GMT*
 
+### [2026 LiveLaw (SC) 978 | MAHANADI COALFIELDS LTD & ORS. VERSUS M/S GSCO (GURMEET SINGH AND COMPANY) INFRASTRUCTURE PVT. LTD.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-978-mahanadi-coalfields-ltd-ors-versus-ms-gsco-gurmeet-singh-and-company-infrastructure-pvt-ltd-551525)
+*Published on: Wed, 23 Sep 2026 16:32:05 GMT*
+
+
+### [2026 LiveLaw (SC) 977 |  O.P. MEHTA VERSUS MOHINDER KALTA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-977-op-mehta-versus-mohinder-kalta-ors-551523)
+*Published on: Wed, 23 Sep 2026 16:22:32 GMT*
+
+
+### [2026 LiveLaw (SC) 976 | Dr. Jaya Thakur v. Union of India [Election Commissioners Appointmnet Law]](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-976-dr-jaya-thakur-v-union-of-india-election-commissioners-appointmnet-law-551480)
+*Published on: Wed, 23 Sep 2026 14:26:14 GMT*
+
+
+### [2026 LiveLaw (SC) 975 | Jaswinder Singh (Dead Through LRs) v State of Punjab](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-975-jaswinder-singh-dead-through-lrs-v-state-of-punjab-551350)
+*Published on: Wed, 23 Sep 2026 04:52:09 GMT*
+
