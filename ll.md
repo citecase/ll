@@ -3214,3 +3214,34 @@
 ### [2026 LiveLaw (SC) 975 | Jaswinder Singh (Dead Through LRs) v State of Punjab](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-975-jaswinder-singh-dead-through-lrs-v-state-of-punjab-551350)
 *Published on: Wed, 23 Sep 2026 04:52:09 GMT*
 
+### [2026 LiveLaw (SC) 986 | Waris v. State of Madhya Pradesh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-986-waris-v-state-of-madhya-pradesh-551707)
+*Published on: Thu, 24 Sep 2026 16:12:08 GMT*
+
+
+### [2026 LiveLaw (SC) 985 | NAVAL KISHORE & ANR. VERSUS STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-985-naval-kishore-anr-versus-state-of-punjab-551704)
+*Published on: Thu, 24 Sep 2026 15:45:08 GMT*
+
+
+### [2026 LiveLaw (SC) 984 | Sri Anumandala Rajesh Reddy v State of Karnataka & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-984-sri-anumandala-rajesh-reddy-v-state-of-karnataka-anr-551702)
+*Published on: Thu, 24 Sep 2026 15:42:02 GMT*
+
+
+### [2026 LiveLaw (SC) 983 | Union of India & Ors v Ramdhani Prasad](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-983-union-of-india-ors-v-ramdhani-prasad-551694)
+*Published on: Thu, 24 Sep 2026 15:23:47 GMT*
+
+
+### [2026 LiveLaw (SC) 982 | R v E](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-982-r-v-e-551638)
+*Published on: Thu, 24 Sep 2026 10:51:56 GMT*
+
+
+### [2026 LiveLaw (SC) 981 | DEBARATI BHUNIA CHAKRABORTY VERSUS SUMAN SANKAR BHUNIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-981-debarati-bhunia-chakraborty-versus-suman-sankar-bhunia-551633)
+*Published on: Thu, 24 Sep 2026 10:30:56 GMT*
+
+
+### [2026 LiveLaw (SC) 980 |  North Eastern Electric Power Corporation Limited (NEEPCO) Versus Astra Construction Private Limited](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-980-north-eastern-electric-power-corporation-limited-neepco-versus-astra-construction-private-limited-551612)
+*Published on: Thu, 24 Sep 2026 08:55:42 GMT*
+
+
+### [2026 LiveLaw (SC) 979  | MIHIR PRAKASH BAJORIA VERSUS VIDUSHI JAIN BAJORIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-979-mihir-prakash-bajoria-versus-vidushi-jain-bajoria-551562)
+*Published on: Thu, 24 Sep 2026 05:39:35 GMT*
+
