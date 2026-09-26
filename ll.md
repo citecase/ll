@@ -3245,3 +3245,26 @@
 ### [2026 LiveLaw (SC) 979  | MIHIR PRAKASH BAJORIA VERSUS VIDUSHI JAIN BAJORIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-979-mihir-prakash-bajoria-versus-vidushi-jain-bajoria-551562)
 *Published on: Thu, 24 Sep 2026 05:39:35 GMT*
 
+### [2026 LiveLaw (SC) 992 | PARAMJIT SINGH BEDI VERSUS STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-992-paramjit-singh-bedi-versus-state-of-punjab-551858)
+*Published on: Fri, 25 Sep 2026 13:20:12 GMT*
+
+
+### [2026 LiveLaw (SC) 991 | Owners and Parties Interested in M.V. Nereus Progress Versus Om Freight Forwarders Ltd.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-991-owners-and-parties-interested-in-mv-nereus-progress-versus-om-freight-forwarders-ltd-551856)
+*Published on: Fri, 25 Sep 2026 13:15:08 GMT*
+
+
+### [2026 LiveLaw (SC) 990 | Subhas Chandra Sarkar Versus The State of West Bengal & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-990-subhas-chandra-sarkar-versus-the-state-of-west-bengal-ors-551788)
+*Published on: Fri, 25 Sep 2026 08:16:23 GMT*
+
+
+### [2026 LiveLaw (SC) 989 | Sanu Varghese Versus Shoukkathali](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-989-sanu-varghese-versus-shoukkathali-551755)
+*Published on: Fri, 25 Sep 2026 06:20:54 GMT*
+
+
+### [2026 LiveLaw (SC) 988 | ASIT BARAN MONDAL & ANR. VERSUS DR. RITA SINHA MBBS MS (OBST. GYNAE) & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-988-asit-baran-mondal-anr-versus-dr-rita-sinha-mbbs-ms-obst-gynae-ors-551734)
+*Published on: Fri, 25 Sep 2026 05:03:16 GMT*
+
+
+### [2026 LiveLaw (SC) 987 | HG Pattabi v KR Suraj & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-987-hg-pattabi-v-kr-suraj-ors-551725)
+*Published on: Fri, 25 Sep 2026 04:23:33 GMT*
+
