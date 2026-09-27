@@ -3268,3 +3268,10 @@
 ### [2026 LiveLaw (SC) 987 | HG Pattabi v KR Suraj & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-987-hg-pattabi-v-kr-suraj-ors-551725)
 *Published on: Fri, 25 Sep 2026 04:23:33 GMT*
 
+### [2026 LiveLaw (SC) 994 | Sukhabhai Nanjibhai Makwana & Anr v Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-994-sukhabhai-nanjibhai-makwana-anr-v-union-of-india-551975)
+*Published on: Sat, 26 Sep 2026 11:25:27 GMT*
+
+
+### [2026 LiveLaw (SC) 993 | JAI PRAKASH SINGH VERSUS THE STATE OF UTTAR PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-993-jai-prakash-singh-versus-the-state-of-uttar-pradesh-ors-551955)
+*Published on: Sat, 26 Sep 2026 09:11:02 GMT*
+
