@@ -3275,3 +3275,10 @@
 ### [2026 LiveLaw (SC) 993 | JAI PRAKASH SINGH VERSUS THE STATE OF UTTAR PRADESH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-993-jai-prakash-singh-versus-the-state-of-uttar-pradesh-ors-551955)
 *Published on: Sat, 26 Sep 2026 09:11:02 GMT*
 
+### [2026 LiveLaw (SC) 996 |  In Re: Recent Rape Incidents in Delhi NCR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-996-in-re-recent-rape-incidents-in-delhi-ncr-552164)
+*Published on: Mon, 28 Sep 2026 15:41:17 GMT*
+
+
+### [2026 LiveLaw (SC) 995 | BIHAR STATE ARDH SARKARI ARAJPATI KARAMCHARI MAHA SANGH AND OTHERS VERSUS STATE OF BIHAR AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-995-bihar-state-ardh-sarkari-arajpati-karamchari-maha-sangh-and-others-versus-state-of-bihar-and-others-552140)
+*Published on: Mon, 28 Sep 2026 13:28:35 GMT*
+
