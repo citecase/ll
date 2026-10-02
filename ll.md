@@ -3312,3 +3312,30 @@
 ### [2026 LiveLaw (SC) 1003 |  KANHA @ KANHAIYA SINGH VERSUS THE STATE OF MADHYA PRADESH & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1003-kanha-kanhaiya-singh-versus-the-state-of-madhya-pradesh-anr-552513)
 *Published on: Wed, 30 Sep 2026 11:54:27 GMT*
 
+### [2026 LiveLaw (SC) 1011 | MIHIRA SOOD Vs THE BAR COUNCIL OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1011-mihira-sood-vs-the-bar-council-of-india-552723)
+*Published on: Thu, 01 Oct 2026 13:24:08 GMT*
+
+
+### [2026 LiveLaw (SC) 1010 | Seema Joshi v. Bar Council of India and Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1010-seema-joshi-v-bar-council-of-india-and-ors-552721)
+*Published on: Thu, 01 Oct 2026 13:20:43 GMT*
+
+
+### [2026 LiveLaw (SC) 1009 | SANTOSH GURUNG VERSUS STATE OF SIKKIM](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1009-santosh-gurung-versus-state-of-sikkim-552719)
+*Published on: Thu, 01 Oct 2026 13:18:46 GMT*
+
+
+### [2026 LiveLaw (SC) 1008 |  STERLING HOLIDAY RESORTS LIMITED VERSUS M/S P.M. ASSOCIATES & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1008-sterling-holiday-resorts-limited-versus-ms-pm-associates-ors-552716)
+*Published on: Fri, 02 Oct 2026 03:02:29 GMT*
+
+
+### [2026 LiveLaw (SC) 1007 | S.RAJASEEKARAN VERSUS UNION OF INDIA AND ORS. & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1007-srajaseekaran-versus-union-of-india-and-ors-ors-552687)
+*Published on: Thu, 01 Oct 2026 11:09:49 GMT*
+
+
+### [2026 LiveLaw (SC) 1006 | ORRIS INFRASTRUCTURE PRIVATE LIMITED VERSUS RAKESH KUMAR GUPTA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1006-orris-infrastructure-private-limited-versus-rakesh-kumar-gupta-ors-552612)
+*Published on: Thu, 01 Oct 2026 06:34:30 GMT*
+
+
+### [2026 LiveLaw (SC) 1005 | SAINABA VERSUS STATE OF KERALA & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1005-sainaba-versus-state-of-kerala-anr-552589)
+*Published on: Thu, 01 Oct 2026 04:42:30 GMT*
+
