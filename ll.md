@@ -3339,3 +3339,10 @@
 ### [2026 LiveLaw (SC) 1005 | SAINABA VERSUS STATE OF KERALA & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1005-sainaba-versus-state-of-kerala-anr-552589)
 *Published on: Thu, 01 Oct 2026 04:42:30 GMT*
 
+### [2026 LiveLaw (SC) 1013 | STATE OF MAHARASHTRA vs. RAMESH SUKRYA MHATRE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1013-state-of-maharashtra-vs-ramesh-sukrya-mhatre-552876)
+*Published on: Fri, 02 Oct 2026 14:06:59 GMT*
+
+
+### [2026 LiveLaw (SC) 1012 | Saurabh Bajaj Versus State of Chhattisgarh & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1012-saurabh-bajaj-versus-state-of-chhattisgarh-ors-552842)
+*Published on: Fri, 02 Oct 2026 08:11:23 GMT*
+
