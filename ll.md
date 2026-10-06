@@ -3346,3 +3346,18 @@
 ### [2026 LiveLaw (SC) 1012 | Saurabh Bajaj Versus State of Chhattisgarh & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1012-saurabh-bajaj-versus-state-of-chhattisgarh-ors-552842)
 *Published on: Fri, 02 Oct 2026 08:11:23 GMT*
 
+### [2026 LiveLaw (SC) 1017 | ADDL. COMMR. COMMERCIAL TAX & ORS. VERSUS CADILA HEALTH CARE LTD & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1017-addl-commr-commercial-tax-ors-versus-cadila-health-care-ltd-anr-553220)
+*Published on: Mon, 05 Oct 2026 14:41:14 GMT*
+
+
+### [2026 LiveLaw (SC) 1016 | The State of Karnataka & Anr. Versus Sadiq Pasha](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1016-the-state-of-karnataka-anr-versus-sadiq-pasha-553202)
+*Published on: Mon, 05 Oct 2026 13:54:22 GMT*
+
+
+### [2026 LiveLaw (SC) 1015 |  Martanda Singh v State of Chattisgarh & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1015-553198)
+*Published on: Mon, 05 Oct 2026 13:46:47 GMT*
+
+
+### [2026 LiveLaw (SC) 1014 | THE STATE OF HIMACHAL PRADESH VERSUS ANCHLA @ CHANCHLA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1014-the-state-of-himachal-pradesh-versus-anchla-chanchla-553151)
+*Published on: Mon, 05 Oct 2026 11:00:36 GMT*
+
