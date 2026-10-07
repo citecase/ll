@@ -3361,3 +3361,14 @@
 ### [2026 LiveLaw (SC) 1014 | THE STATE OF HIMACHAL PRADESH VERSUS ANCHLA @ CHANCHLA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1014-the-state-of-himachal-pradesh-versus-anchla-chanchla-553151)
 *Published on: Mon, 05 Oct 2026 11:00:36 GMT*
 
+### [2026 LiveLaw (SC) 1020 | Chhaganbhai Kohyabhai Pateliya & Ors. v. State of Gujarat & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1020-chhaganbhai-kohyabhai-pateliya-ors-v-state-of-gujarat-ors-553360)
+*Published on: Tue, 06 Oct 2026 10:35:27 GMT*
+
+
+### [2026 LiveLaw (SC) 1019 | Dr MK Ravi Varma etc etc v National Institute of Technology and Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1019-dr-mk-ravi-varma-etc-etc-v-national-institute-of-technology-and-ors-553311)
+*Published on: Tue, 06 Oct 2026 07:03:57 GMT*
+
+
+### [2026 LiveLaw (SC) 1018 | GOPAL PATHAK VERSUS NITIN ALIAS PAPPU & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1018-gopal-pathak-versus-nitin-alias-pappu-anr-553299)
+*Published on: Tue, 06 Oct 2026 06:34:27 GMT*
+
