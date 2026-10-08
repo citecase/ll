@@ -3372,3 +3372,34 @@
 ### [2026 LiveLaw (SC) 1018 | GOPAL PATHAK VERSUS NITIN ALIAS PAPPU & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1018-gopal-pathak-versus-nitin-alias-pappu-anr-553299)
 *Published on: Tue, 06 Oct 2026 06:34:27 GMT*
 
+### [2026 LiveLaw (SC) 1028 | Yogesh Premjibhai Suvariya & Anr. v State of Gujarat & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1028-yogesh-premjibhai-suvariya-anr-v-state-of-gujarat-anr-553598)
+*Published on: Wed, 07 Oct 2026 15:29:49 GMT*
+
+
+### [2026 LiveLaw (SC) 1027 | M/S. MEPCO INDUSTRIES LTD. VERSUS COMMISSIONER OF INCOME TAX COMPANY CIRCLE](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1027-ms-mepco-industries-ltd-versus-commissioner-of-income-tax-company-circle-553595)
+*Published on: Wed, 07 Oct 2026 15:04:32 GMT*
+
+
+### [2026 LiveLaw (SC) 1026 | V. PON. PANEERSELVAM VERSUS S. REGUPATHY AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1026-v-pon-paneerselvam-versus-s-regupathy-and-others-553594)
+*Published on: Wed, 07 Oct 2026 15:03:23 GMT*
+
+
+### [2026 LiveLaw (SC) 1025 | Miteshgiri @ Mulrajgiri Sevagiri Goswami & Anr. v State of Gujarat](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1025-miteshgiri-mulrajgiri-sevagiri-goswami-anr-v-state-of-gujarat-553467)
+*Published on: Wed, 07 Oct 2026 06:01:55 GMT*
+
+
+### [2026 LiveLaw (SC) 1024 | Jagdish Prasad Tripathi v State of UP through its Principal Secretary & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1024-jagdish-prasad-tripathi-v-state-of-up-through-its-principal-secretary-ors-553460)
+*Published on: Wed, 07 Oct 2026 10:51:23 GMT*
+
+
+### [2026 LiveLaw (SC) 1023 | Ajit Kumar v State of Jharkhand](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1023-ajit-kumar-v-state-of-jharkhand-553448)
+*Published on: Wed, 07 Oct 2026 04:51:38 GMT*
+
+
+### [2026 LiveLaw (SC) 1022 | SUDHA RAKESH VERSUS THE STATE OF KARNATAKA & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1022-sudha-rakesh-versus-the-state-of-karnataka-anr-553447)
+*Published on: Wed, 07 Oct 2026 04:49:29 GMT*
+
+
+### [2026 LiveLaw (SC) 1021 | SANTOSH B. NAIK VERSUS STATE OF GOA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1021-santosh-b-naik-versus-state-of-goa-ors-553444)
+*Published on: Wed, 07 Oct 2026 04:45:54 GMT*
+
