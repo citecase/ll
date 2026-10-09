@@ -3403,3 +3403,18 @@
 ### [2026 LiveLaw (SC) 1021 | SANTOSH B. NAIK VERSUS STATE OF GOA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1021-santosh-b-naik-versus-state-of-goa-ors-553444)
 *Published on: Wed, 07 Oct 2026 04:45:54 GMT*
 
+### [2026 LiveLaw (SC) 1032  | RAMKRUSHNA PRAHLLAD DONGARDIVE VERSUS THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1032-ramkrushna-prahllad-dongardive-versus-the-state-of-maharashtra-553764)
+*Published on: Thu, 08 Oct 2026 14:17:18 GMT*
+
+
+### [2026 LiveLaw (SC) 1031 | APPA VERSUS THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1031-appa-versus-the-state-of-maharashtra-553686)
+*Published on: Thu, 08 Oct 2026 07:28:52 GMT*
+
+
+### [2026 LiveLaw (SC) 1030 | In Re: Recent Rape Incidents in Delhi NCR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1030-in-re-recent-rape-incidents-in-delhi-ncr-553679)
+*Published on: Thu, 08 Oct 2026 07:09:12 GMT*
+
+
+### [2026 LiveLaw (SC) 1029 |  Chittibarika Chandra Shekar & Ors. Versus The State of Telangana & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1029-chittibarika-chandra-shekar-ors-versus-the-state-of-telangana-anr-553658)
+*Published on: Thu, 08 Oct 2026 06:05:13 GMT*
+
