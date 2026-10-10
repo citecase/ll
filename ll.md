@@ -3418,3 +3418,18 @@
 ### [2026 LiveLaw (SC) 1029 |  Chittibarika Chandra Shekar & Ors. Versus The State of Telangana & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1029-chittibarika-chandra-shekar-ors-versus-the-state-of-telangana-anr-553658)
 *Published on: Thu, 08 Oct 2026 06:05:13 GMT*
 
+### [2026 LiveLaw (SC) 1036 | Shubham Equipment Private Limited & Anr. v. Rothwell Water Company Limited & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1036-shubham-equipment-private-limited-anr-v-rothwell-water-company-limited-ors-553967)
+*Published on: Fri, 09 Oct 2026 13:26:08 GMT*
+
+
+### [2026 LiveLaw (SC) 1035 | Pratap Singh Baghel v Akanksha Shukla](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1035-pratap-singh-baghel-v-akanksha-shukla-553964)
+*Published on: Fri, 09 Oct 2026 13:17:06 GMT*
+
+
+### [2026 LiveLaw(SC) 1034 | Federation of Medical and Sales Representatives Associations of India and Ors. v. Union of India and Ors.](https://www.livelaw.in/sc-judgments/2026-livelawsc-1034-federation-of-medical-and-sales-representatives-associations-of-india-and-ors-v-union-of-india-and-ors-553959)
+*Published on: Fri, 09 Oct 2026 13:07:25 GMT*
+
+
+### [2026 LiveLaw (SC) 1033 | RENUKA JAIN VERSUS THE STATE OF NCT OF DELHI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1033-renuka-jain-versus-the-state-of-nct-of-delhi-ors-553835)
+*Published on: Fri, 09 Oct 2026 05:20:11 GMT*
+
