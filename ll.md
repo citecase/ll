@@ -3433,3 +3433,6 @@
 ### [2026 LiveLaw (SC) 1033 | RENUKA JAIN VERSUS THE STATE OF NCT OF DELHI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1033-renuka-jain-versus-the-state-of-nct-of-delhi-ors-553835)
 *Published on: Fri, 09 Oct 2026 05:20:11 GMT*
 
+### [2026 LiveLaw (SC) 1037 | Sultan Singh (Dead) Through LRs and Others v. The Financial Commissioner, Government of NCT of Delhi and Others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1037-sultan-singh-dead-through-lrs-and-others-v-the-financial-commissioner-government-of-nct-of-delhi-and-others-554009)
+*Published on: Sat, 10 Oct 2026 05:06:57 GMT*
+
