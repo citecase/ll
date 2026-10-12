@@ -3436,3 +3436,10 @@
 ### [2026 LiveLaw (SC) 1037 | Sultan Singh (Dead) Through LRs and Others v. The Financial Commissioner, Government of NCT of Delhi and Others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1037-sultan-singh-dead-through-lrs-and-others-v-the-financial-commissioner-government-of-nct-of-delhi-and-others-554009)
 *Published on: Sat, 10 Oct 2026 05:06:57 GMT*
 
+### [2026 LiveLaw (SC) 1039 | Shilendra Mani Tripathi v Govind Mohan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1039-shilendra-mani-tripathi-v-govind-mohan-554144)
+*Published on: Sun, 11 Oct 2026 11:46:37 GMT*
+
+
+### [2026 LiveLaw (SC) 1038 | Charming Rupon v State of Meghalaya](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1038-charming-rupon-v-state-of-meghalaya-554141)
+*Published on: Sun, 11 Oct 2026 11:12:33 GMT*
+
