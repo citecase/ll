@@ -3443,3 +3443,18 @@
 ### [2026 LiveLaw (SC) 1038 | Charming Rupon v State of Meghalaya](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1038-charming-rupon-v-state-of-meghalaya-554141)
 *Published on: Sun, 11 Oct 2026 11:12:33 GMT*
 
+### [2026 LiveLaw (SC) 1043 | Mrityunjay Kumar Chaudhary Versus State of Bihar & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1043-mrityunjay-kumar-chaudhary-versus-state-of-bihar-anr-554385)
+*Published on: Tue, 13 Oct 2026 05:03:36 GMT*
+
+
+### [2026 LiveLaw (SC) 1042 | ARCIS CLEAN ENERGY PVT. LTD VS. PARSHVA INNOVATION](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1042-arcis-clean-energy-pvt-ltd-vs-parshva-innovation-554351)
+*Published on: Mon, 12 Oct 2026 16:26:15 GMT*
+
+
+### [2026 LiveLaw (SC) 1041 | HARAMANI SAHOO AND OTHERS VERSUS LALITA NAYAK AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1041-haramani-sahoo-and-others-versus-lalita-nayak-and-others-554332)
+*Published on: Mon, 12 Oct 2026 14:32:17 GMT*
+
+
+### [2026 LiveLaw (SC) 1040 |  H. NAGARAJAN & ORS. Vs. STATE OF T.N. & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1040-h-nagarajan-ors-vs-state-of-tn-ors-554307)
+*Published on: Mon, 12 Oct 2026 12:49:00 GMT*
+
