@@ -3458,3 +3458,18 @@
 ### [2026 LiveLaw (SC) 1040 |  H. NAGARAJAN & ORS. Vs. STATE OF T.N. & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1040-h-nagarajan-ors-vs-state-of-tn-ors-554307)
 *Published on: Mon, 12 Oct 2026 12:49:00 GMT*
 
+### [2026 LiveLaw (SC) 1047 | UNION OF INDIA V RADHA YADAV](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1047-union-of-india-v-radha-yadav-554529)
+*Published on: Tue, 13 Oct 2026 17:43:11 GMT*
+
+
+### [2026 LiveLaw (SC) 1046 | ORISSA RURAL HOUSING DEVELOPMENT CORPORATION LTD. VERSUS THE ASST. COMMISSIONER OF INCOME TAX & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1046-orissa-rural-housing-development-corporation-ltd-versus-the-asst-commissioner-of-income-tax-ors-554515)
+*Published on: Tue, 13 Oct 2026 15:07:53 GMT*
+
+
+### [2026 LiveLaw (SC) 1045 | Hemant D. Shah HUF & Anr. Versus Chittaranjan D. Shah HUF & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1045-hemant-d-shah-huf-anr-versus-chittaranjan-d-shah-huf-ors-554462)
+*Published on: Tue, 13 Oct 2026 10:28:43 GMT*
+
+
+### [2026 LiveLaw (SC) 1044 | SANJANA BHASKARAN VERSUS STATE OF TELANGANA & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1044-sanjana-bhaskaran-versus-state-of-telangana-anr-554419)
+*Published on: Tue, 13 Oct 2026 07:25:06 GMT*
+
