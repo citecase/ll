@@ -3473,3 +3473,58 @@
 ### [2026 LiveLaw (SC) 1044 | SANJANA BHASKARAN VERSUS STATE OF TELANGANA & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1044-sanjana-bhaskaran-versus-state-of-telangana-anr-554419)
 *Published on: Tue, 13 Oct 2026 07:25:06 GMT*
 
+### [2026 LiveLaw (SC) 1061 | Deepak Raheja and Another v. Omkara Assets Reconstruction Private Ltd. and Another](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1061-deepak-raheja-and-another-v-omkara-assets-reconstruction-private-ltd-and-another-554927)
+*Published on: Thu, 15 Oct 2026 16:10:10 GMT*
+
+
+### [2026 LiveLaw (SC) 1060 | YES BANK LIMITED & ANR. VERSUS AXIS TRUSTEE SERVICES LIMITED & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1060-yes-bank-limited-anr-versus-axis-trustee-services-limited-ors-554920)
+*Published on: Thu, 15 Oct 2026 15:04:02 GMT*
+
+
+### [2026 LiveLaw (SC) 1059 | The Secretary to Government v Sameer Ahamed](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1059-the-secretary-to-government-v-sameer-ahamed-554878)
+*Published on: Thu, 15 Oct 2026 11:58:39 GMT*
+
+
+### [2026 LiveLaw (SC) 1058 | B. ANASUYAMMA (DIED) PER LR AND ANOTHER versus B. MADHUSUDHAN REDDY (DIED) PER LRS AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1058-b-anasuyamma-died-per-lr-and-another-versus-b-madhusudhan-reddy-died-per-lrs-and-others-554871)
+*Published on: Thu, 15 Oct 2026 11:38:02 GMT*
+
+
+### [2026 LiveLaw (SC) 1057 | MUKESH TYAGI VERSUS THE STATE OF RAJASTHAN & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1057-mukesh-tyagi-versus-the-state-of-rajasthan-ors-554861)
+*Published on: Thu, 15 Oct 2026 11:10:57 GMT*
+
+
+### [2026 LiveLaw (SC) 1056 | | ALLADIN CHARITIES AND ZAKAT WAKF VERSUS MOHAMMED SALEEM ALIAS MOHD. WAJID ALI AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1056-alladin-charities-and-zakat-wakf-versus-mohammed-saleem-alias-mohd-wajid-ali-and-another-554840)
+*Published on: Thu, 15 Oct 2026 10:02:09 GMT*
+
+
+### [2026 LiveLaw (SC) 1055 | M/S DHANLAXMI MERCHANDISE PVT. LTD. VERSUS STATE OF MADHYA PRADESH & ORS. (with connected case)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1055-ms-dhanlaxmi-merchandise-pvt-ltd-versus-state-of-madhya-pradesh-ors-with-connected-case-554809)
+*Published on: Thu, 15 Oct 2026 07:57:10 GMT*
+
+
+### [2026 LiveLaw (SC) 1054 | Umesh Chand Versus State of U.P & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1054-umesh-chand-versus-state-of-up-ors-554804)
+*Published on: Thu, 15 Oct 2026 07:47:35 GMT*
+
+
+### [2026 LiveLaw (SC) 1053 | DR. B.C. ROY ENGINEERING COLLEGE & ANR. VERSUS THE STATE OF WEST BENGAL & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1053-dr-bc-roy-engineering-college-anr-versus-the-state-of-west-bengal-ors-554782)
+*Published on: Thu, 15 Oct 2026 07:07:48 GMT*
+
+
+### [2026 LiveLaw (SC) 1052 | SANJAY PRASAD VERSUS MADHUSUDAN DWIVEDI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1052-554777)
+*Published on: Thu, 15 Oct 2026 06:48:51 GMT*
+
+
+### [2026 LiveLaw (SC) 1051 |IRFAN AHMAD HAKAK Vs. UNION TERRITORY OF JAMMU AND KASHMIR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1051-irfan-ahmad-hakak-vs-union-territory-of-jammu-and-kashmir-ors-554770)
+*Published on: Thu, 15 Oct 2026 06:35:32 GMT*
+
+
+### [2026 LiveLaw (SC) 1050 | STATE OF MAHARASHTRA VS. SUDHIR S/O MOTIRAMJI HIWARKAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1050-state-of-maharashtra-vs-sudhir-so-motiramji-hiwarkar-ors-554764)
+*Published on: Thu, 15 Oct 2026 06:24:50 GMT*
+
+
+### [2026 LiveLaw (SC) 1049 | THE ASSISTANT COMMISSIONER OF CENTRAL TAX, CGST DIVISION VERSUS SREENIVASA RAO RAVINUTHALA AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1049-the-assistant-commissioner-of-central-tax-cgst-division-versus-sreenivasa-rao-ravinuthala-and-another-554756)
+*Published on: Thu, 15 Oct 2026 06:07:14 GMT*
+
+
+### [2026 LiveLaw (SC) 1048 | SANJAY SUREKA @SANJAY KUMAR SUREKA VERSUS DIRECTORATE OF ENFORCEMENT](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1048-sanjay-sureka-sanjay-kumar-sureka-versus-directorate-of-enforcement-554753)
+*Published on: Thu, 15 Oct 2026 06:03:47 GMT*
+
