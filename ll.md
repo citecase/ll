@@ -3551,3 +3551,14 @@
 ### [2026 LiveLaw (SC) 1062 | Indroneel Goho v Razouvonuo Thong & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1062-indroneel-goho-v-razouvonuo-thong-anr-555118)
 *Published on: Sat, 17 Oct 2026 03:35:34 GMT*
 
+### [2026 LiveLaw (SC) 1070 | Tejaram v. State of Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1070-tejaram-v-state-of-rajasthan-555346)
+*Published on: Tue, 20 Oct 2026 02:54:26 GMT*
+
+
+### [2026 LiveLaw (SC) 1069 | Rajkumar Madki v. Dr. Shailendra Beldale](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1069-rajkumar-madki-v-dr-shailendra-beldale-555275)
+*Published on: Mon, 19 Oct 2026 05:35:59 GMT*
+
+
+### [2026 LiveLaw (SC) 1068 | R. SARAVANAN VERSUS PERIYAR UNIVERSITY REP BY ITS REGISTRAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1068-r-saravanan-versus-periyar-university-rep-by-its-registrar-ors-555265)
+*Published on: Mon, 19 Oct 2026 04:47:37 GMT*
+
