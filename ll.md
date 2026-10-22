@@ -3562,3 +3562,26 @@
 ### [2026 LiveLaw (SC) 1068 | R. SARAVANAN VERSUS PERIYAR UNIVERSITY REP BY ITS REGISTRAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1068-r-saravanan-versus-periyar-university-rep-by-its-registrar-ors-555265)
 *Published on: Mon, 19 Oct 2026 04:47:37 GMT*
 
+### [2026 LiveLaw (SC) 1076 | Pinarayi Vijayan v KM Shajahan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1076-pinarayi-vijayan-v-km-shajahan-555546)
+*Published on: Wed, 21 Oct 2026 15:52:56 GMT*
+
+
+### [2026 LiveLaw (SC) 1075 | YUVAJANA SRAMIKA RYTHU CONGRESS PARTY Versus THE STATE OF ANDHRA PRADESH AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1075-yuvajana-sramika-rythu-congress-party-versus-the-state-of-andhra-pradesh-and-ors-555528)
+*Published on: Wed, 21 Oct 2026 13:29:08 GMT*
+
+
+### [2026 LiveLaw (SC) 1074 | M/S Jpee Drugs vs State Of Madhya Pradesh](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1074-ms-jpee-drugs-vs-state-of-madhya-pradesh-555487)
+*Published on: Wed, 21 Oct 2026 08:32:53 GMT*
+
+
+### [2026 LiveLaw (SC) 1073 | Sunil Kumar (Totally Disabled Represented by Wife) v. IFFCO Tokio General Insurance Company Ltd](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1073-sunil-kumar-totally-disabled-represented-by-wife-v-iffco-tokio-general-insurance-company-ltd-555483)
+*Published on: Wed, 21 Oct 2026 08:12:48 GMT*
+
+
+### [2026 LiveLaw (SC) 1072 | STATE OF HIMACHAL PRADESH REPRESENTED BY ITS ADDITIONAL SECRETARY (HOME) Versus COURT ON ITS OWN MOTION](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1072-state-of-himachal-pradesh-represented-by-its-additional-secretary-home-versus-court-on-its-own-motion-555481)
+*Published on: Wed, 21 Oct 2026 08:00:03 GMT*
+
+
+### [2026 LiveLaw (SC) 1071 | SEEMA SHARMA v. STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1071-seema-sharma-v-state-of-punjab-555480)
+*Published on: Wed, 21 Oct 2026 07:58:03 GMT*
+
