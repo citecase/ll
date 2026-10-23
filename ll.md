@@ -3585,3 +3585,6 @@
 ### [2026 LiveLaw (SC) 1071 | SEEMA SHARMA v. STATE OF PUNJAB](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1071-seema-sharma-v-state-of-punjab-555480)
 *Published on: Wed, 21 Oct 2026 07:58:03 GMT*
 
+### [2026 LiveLaw (SC) 1076 | Mahesh Chandra Joshi v. State of Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1076-mahesh-chandra-joshi-v-state-of-rajasthan-555583)
+*Published on: Thu, 22 Oct 2026 07:23:41 GMT*
+
