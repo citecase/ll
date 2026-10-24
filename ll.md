@@ -3588,3 +3588,18 @@
 ### [2026 LiveLaw (SC) 1076 | Mahesh Chandra Joshi v. State of Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1076-mahesh-chandra-joshi-v-state-of-rajasthan-555583)
 *Published on: Thu, 22 Oct 2026 07:23:41 GMT*
 
+### [2026 LiveLaw (SC) 1081 | SMT. RANO SINGH AND OTHERS VERSUS SH. GURBAX SINGH (D) TH LRS AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1081-smt-rano-singh-and-others-versus-sh-gurbax-singh-d-th-lrs-and-others-555743)
+*Published on: Fri, 23 Oct 2026 09:55:05 GMT*
+
+
+### [2026 LiveLaw (SC) 1080 | ABHISHEK UPADHYAY v. STATE OF UTTAR PRADESH AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1080-abhishek-upadhyay-v-state-of-uttar-pradesh-and-ors-555699)
+*Published on: Fri, 23 Oct 2026 06:37:58 GMT*
+
+
+### [2026 LiveLaw (SC) 1079 | SATINDER PAL SINGH & ORS. VERSUS BEDI HOSPITAL & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1079-satinder-pal-singh-ors-versus-bedi-hospital-ors-555695)
+*Published on: Fri, 23 Oct 2026 06:12:42 GMT*
+
+
+### [2026 LiveLaw (SC) 1078 | KUSUMLAL SAO VERSUS STATE OF CHHATTISGARH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1078-kusumlal-sao-versus-state-of-chhattisgarh-555680)
+*Published on: Fri, 23 Oct 2026 05:31:11 GMT*
+
