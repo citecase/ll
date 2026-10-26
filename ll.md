@@ -3603,3 +3603,6 @@
 ### [2026 LiveLaw (SC) 1078 | KUSUMLAL SAO VERSUS STATE OF CHHATTISGARH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1078-kusumlal-sao-versus-state-of-chhattisgarh-555680)
 *Published on: Fri, 23 Oct 2026 05:31:11 GMT*
 
+### [2026 LiveLaw (SC) 1082 | S. GURURAJ VERSUS THE ADDITIONAL CHIEF SECRETARY/ COMMISSIONER OF LAND ADMINISTRATION AND OTHERS (with connected cases)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1082-s-gururaj-versus-the-additional-chief-secretary-commissioner-of-land-administration-and-others-with-connected-cases-555869)
+*Published on: Sun, 25 Oct 2026 12:39:05 GMT*
+
