@@ -3606,3 +3606,18 @@
 ### [2026 LiveLaw (SC) 1082 | S. GURURAJ VERSUS THE ADDITIONAL CHIEF SECRETARY/ COMMISSIONER OF LAND ADMINISTRATION AND OTHERS (with connected cases)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1082-s-gururaj-versus-the-additional-chief-secretary-commissioner-of-land-administration-and-others-with-connected-cases-555869)
 *Published on: Sun, 25 Oct 2026 12:39:05 GMT*
 
+### [2026 LiveLaw (SC) 1086 | N. Arasappa Versus State of Karnataka & Ors. (with connected cases)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1086-n-arasappa-versus-state-of-karnataka-ors-with-connected-cases-556029)
+*Published on: Mon, 26 Oct 2026 13:50:57 GMT*
+
+
+### [2026 LiveLaw (SC) 1085 | The Muppathadam Service Co-Operative Bank Ltd. Versus The State Chief Information Commissioner & Ors. (with connected cases)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1085-the-muppathadam-service-co-operative-bank-ltd-versus-the-state-chief-information-commissioner-ors-with-connected-cases-556024)
+*Published on: Mon, 26 Oct 2026 13:37:56 GMT*
+
+
+### [2026 LiveLaw (SC) 1084 | BANK OF INDIA & ORS. Versus S.M. KAMAL PASHA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1084-bank-of-india-ors-versus-sm-kamal-pasha-ors-556002)
+*Published on: Mon, 26 Oct 2026 12:00:40 GMT*
+
+
+### [2026 LiveLaw (SC) 1083 | ARUN @ DEEPAK Versus STATE OF U.P.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1083-arun-deepak-versus-state-of-up-555986)
+*Published on: Mon, 26 Oct 2026 10:55:02 GMT*
+
