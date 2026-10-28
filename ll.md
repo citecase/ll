@@ -3621,3 +3621,26 @@
 ### [2026 LiveLaw (SC) 1083 | ARUN @ DEEPAK Versus STATE OF U.P.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1083-arun-deepak-versus-state-of-up-555986)
 *Published on: Mon, 26 Oct 2026 10:55:02 GMT*
 
+### [2026 LiveLaw (SC) 1092 | M/S. LAKSHMI SUGAR MILLS CO. LTD. VERSUS COMMISSIONER OF INCOME TAX, DELHI -II](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1092-ms-lakshmi-sugar-mills-co-ltd-versus-commissioner-of-income-tax-delhi-ii-556244)
+*Published on: Wed, 28 Oct 2026 03:33:20 GMT*
+
+
+### [2026 LiveLaw (SC) 1091 | UNION OF INDIA VERSUS MOHAMED RIFAS @ MOHAMED RIGBAS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1091-union-of-india-versus-mohamed-rifas-mohamed-rigbas-556204)
+*Published on: Tue, 27 Oct 2026 13:55:43 GMT*
+
+
+### [2026 LiveLaw (SC) 1090 | NEELAM YADAV VERSUS STATE OF U.P. & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1090-neelam-yadav-versus-state-of-up-anr-556146)
+*Published on: Tue, 27 Oct 2026 09:24:49 GMT*
+
+
+### [2026 LiveLaw (SC) 1089 | BALAKRISHNA (DEAD) THR. LRS. versus G.N. KANNIAH NAIDU (DEAD) THR. LRS. AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1089-balakrishna-dead-thr-lrs-versus-gn-kanniah-naidu-dead-thr-lrs-and-another-556143)
+*Published on: Tue, 27 Oct 2026 09:08:36 GMT*
+
+
+### [2026 LiveLaw (SC) 1088 | The Assessing Officer, Textiles Committee v. M/s. Premium Suiting Pvt. Ltd. & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1088-the-assessing-officer-textiles-committee-v-ms-premium-suiting-pvt-ltd-anr-556141)
+*Published on: Tue, 27 Oct 2026 09:02:12 GMT*
+
+
+### [2026 LiveLaw (SC) 1087 | DAKSHIN GUJARAT VIJ COMPANY LIMITED & ANR. VERSUS VAIBHAV METAL CRUSHER (with connected case)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1087-dakshin-gujarat-vij-company-limited-anr-versus-vaibhav-metal-crusher-with-connected-case-556066)
+*Published on: Tue, 27 Oct 2026 04:10:25 GMT*
+
