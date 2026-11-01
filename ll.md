@@ -3717,3 +3717,14 @@
 ### [2026 LiveLaw (SC) 1106 | IN THE MATTER OF: VYOMESH MAHIPATRAY SHAH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1106-in-the-matter-of-vyomesh-mahipatray-shah-556591)
 *Published on: Fri, 30 Oct 2026 05:44:50 GMT*
 
+### [2026 LiveLaw (SC) 1114 | JAGANNATH MANDANGI VERSUS STATE OF ODISHA & ANR. ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1114-jagannath-mandangi-versus-state-of-odisha-anr-etc-556786)
+*Published on: Sat, 31 Oct 2026 14:30:31 GMT*
+
+
+### [2026 LiveLaw (SC) 1113 | KARNATAKA LOKAYUKTHA POLICE, BANGALORE DISTRICT VERSUS SRINATH JOSHI MAHADEV, IPS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1112-karnataka-lokayuktha-police-bangalore-district-versus-srinath-joshi-mahadev-ips-556784)
+*Published on: Sat, 31 Oct 2026 14:24:03 GMT*
+
+
+### [2026 LiveLaw (SC) 1112 | Bandari Ramchander & Ors. Maitri Coop. Housing Ltd. & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1112-bandari-ramchander-ors-maitri-coop-housing-ltd-ors-556748)
+*Published on: Sat, 31 Oct 2026 08:09:31 GMT*
+
