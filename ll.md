@@ -3728,3 +3728,26 @@
 ### [2026 LiveLaw (SC) 1112 | Bandari Ramchander & Ors. Maitri Coop. Housing Ltd. & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1112-bandari-ramchander-ors-maitri-coop-housing-ltd-ors-556748)
 *Published on: Sat, 31 Oct 2026 08:09:31 GMT*
 
+### [2026 LiveLaw (SC) 1120 | Hiroo Hotchand Advani v Integrated Finance Company Limited & Ors (with Integrated Finance Company Limited v Hiroo Hotchand Advani)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1120-hiroo-hotchand-advani-v-integrated-finance-company-limited-ors-with-integrated-finance-company-limited-v-hiroo-hotchand-advani-557007)
+*Published on: Tue, 03 Nov 2026 05:15:05 GMT*
+
+
+### [2026 LiveLaw (SC) 1119 | Piyush v. State of Maharashtra & Others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1119-piyush-v-state-of-maharashtra-others-557000)
+*Published on: Tue, 03 Nov 2026 05:06:23 GMT*
+
+
+### [2026 LiveLaw (SC )1118 | RAMKISHAN DIGAMBAR JADHAV VERSUS THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1118-ramkishan-digambar-jadhav-versus-the-state-of-maharashtra-556995)
+*Published on: Tue, 03 Nov 2026 04:44:07 GMT*
+
+
+### [2026 LiveLaw (SC) 1117 | A. ARUN VERSUS VARSHA SHARMA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1117-a-arun-versus-varsha-sharma-ors-556982)
+*Published on: Mon, 02 Nov 2026 14:55:17 GMT*
+
+
+### [2026 LiveLaw (SC) 1116 | GURMEJ SINGH VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1116-gurmej-singh-versus-union-of-india-ors-556957)
+*Published on: Mon, 02 Nov 2026 13:15:31 GMT*
+
+
+### [2026 LiveLaw (SC) 1115 | Arjun Gopal v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1115-arjun-gopal-v-union-of-india-556919)
+*Published on: Mon, 02 Nov 2026 10:19:37 GMT*
+
