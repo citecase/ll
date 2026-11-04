@@ -3751,3 +3751,26 @@
 ### [2026 LiveLaw (SC) 1115 | Arjun Gopal v. Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1115-arjun-gopal-v-union-of-india-556919)
 *Published on: Mon, 02 Nov 2026 10:19:37 GMT*
 
+### [2026 LiveLaw (SC) 1126 | CRYSTAL CROP PROTECTION LTD v DHANUKA AGRITECH LTD & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1126-crystal-crop-protection-ltd-v-dhanuka-agritech-ltd-ors-557221)
+*Published on: Wed, 04 Nov 2026 04:31:01 GMT*
+
+
+### [2026 LiveLaw (SC) 1125 |  N. SRIDHAR REDDY v. THE STATE OF A.P.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1125-n-sridhar-reddy-v-the-state-of-ap-557143)
+*Published on: Tue, 03 Nov 2026 12:53:45 GMT*
+
+
+### [2026 LiveLaw (SC) 1124 | IN RE: XXX, A JUDICIAL OFFICER IN THE DISTRICT JUDGE CADRE OF RAJASTHAN JUDICIAL SERVICES](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1124-in-re-xxx-a-judicial-officer-in-the-district-judge-cadre-of-rajasthan-judicial-services-557131)
+*Published on: Tue, 03 Nov 2026 12:10:10 GMT*
+
+
+### [2026 LiveLaw (SC) 1123 | JODHPUR DISCOMS VERSUS LALIT SONI & ANR. ETC.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1123-jodhpur-discoms-versus-lalit-soni-anr-etc-557087)
+*Published on: Tue, 03 Nov 2026 09:17:13 GMT*
+
+
+### [2026 LiveLaw (SC) 1122 | Hanuman Prasad @ Hanuta Ram VERSUS State of Rajasthan & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1122-hanuman-prasad-hanuta-ram-versus-state-of-rajasthan-ors-557083)
+*Published on: Tue, 03 Nov 2026 09:13:55 GMT*
+
+
+### [2026 LiveLaw (SC) 1121 | Surendra Manjhi & Anr. v. Union of India & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1121-surendra-manjhi-anr-v-union-of-india-ors-557030)
+*Published on: Tue, 03 Nov 2026 05:43:24 GMT*
+
