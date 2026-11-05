@@ -3774,3 +3774,30 @@
 ### [2026 LiveLaw (SC) 1121 | Surendra Manjhi & Anr. v. Union of India & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1121-surendra-manjhi-anr-v-union-of-india-ors-557030)
 *Published on: Tue, 03 Nov 2026 05:43:24 GMT*
 
+### [2026 LiveLaw (SC) 1133 | SUSHILA TRIPATHI VERSUS STATE OF MADHYA PRADESH & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1133-sushila-tripathi-versus-state-of-madhya-pradesh-anr-557406)
+*Published on: Thu, 05 Nov 2026 04:43:21 GMT*
+
+
+### [2026 LiveLaw (SC) 1132 | Arjun Flour Mills v State of Odisha](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1132-arjun-flour-mills-v-state-of-odisha-557376)
+*Published on: Wed, 04 Nov 2026 16:07:32 GMT*
+
+
+### [2026 LiveLaw (SC) 1131 | STATE OF UTTARAKHAND THR. CHIEF SECRETARY AND OTHERS VERSUS M.C. BHANDARI AND ANOTHER](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1131-state-of-uttarakhand-thr-chief-secretary-and-others-versus-mc-bhandari-and-another-557362)
+*Published on: Wed, 04 Nov 2026 14:27:29 GMT*
+
+
+### [2026 LiveLaw (SC) 1130 | SHEKAPPA & ORS. VERSUS STATE OF KARNATAKA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1130-shekappa-ors-versus-state-of-karnataka-557324)
+*Published on: Wed, 04 Nov 2026 10:58:39 GMT*
+
+
+### [2026 LiveLaw (SC) 1129 | MANGALA BHIMRAO INGLE PRATIK v THE ADDITIONAL COMMISSIONER AMRAVATI DIVISION AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1129-mangala-bhimrao-ingle-pratik-v-the-additional-commissioner-amravati-division-and-ors-557319)
+*Published on: Wed, 04 Nov 2026 10:40:13 GMT*
+
+
+### [2026 LiveLaw (SC) 1128 | STATE OF BIHAR VS. PHULPARI KUMARI](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1128-state-of-bihar-vs-phulpari-kumari-557310)
+*Published on: Wed, 04 Nov 2026 10:23:26 GMT*
+
+
+### [2026 LiveLaw (SC) 1127 | HEALTH FOR MILLIONS Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1127-health-for-millions-vs-union-of-india-557257)
+*Published on: Wed, 04 Nov 2026 07:06:02 GMT*
+
