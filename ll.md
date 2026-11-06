@@ -3801,3 +3801,34 @@
 ### [2026 LiveLaw (SC) 1127 | HEALTH FOR MILLIONS Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1127-health-for-millions-vs-union-of-india-557257)
 *Published on: Wed, 04 Nov 2026 07:06:02 GMT*
 
+### [2026 LiveLaw (SC) 1140 | MATIN SHANKARRAO BHOSALE & ANR VERSUS STATE OF MAHARASHTRA & ANR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1140-matin-shankarrao-bhosale-anr-versus-state-of-maharashtra-anr-557540)
+*Published on: Thu, 05 Nov 2026 14:36:06 GMT*
+
+
+### [2026 LiveLaw (SC) 1139 | Sau. Kamalbai Waman Patil v State of Maharashtra](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1139-sau-kamalbai-waman-patil-v-state-of-maharashtra-557528)
+*Published on: Thu, 05 Nov 2026 13:06:09 GMT*
+
+
+### [2026 LiveLaw (SC) 1138 | G. PAZHANIVEL VERSUS S. THILAGAVATHY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1138-g-pazhanivel-versus-s-thilagavathy-557525)
+*Published on: Thu, 05 Nov 2026 12:37:43 GMT*
+
+
+### [2026 LiveLaw (SC) 1137 | Sujit Das v Union of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1137-sujit-das-v-union-of-india-557503)
+*Published on: Thu, 05 Nov 2026 11:13:07 GMT*
+
+
+### [2026 LiveLaw (SC) 1136 | AKANKSHA DEVI VERSUS STATE OF U.P. & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1136-akanksha-devi-versus-state-of-up-ors-557456)
+*Published on: Thu, 05 Nov 2026 08:07:11 GMT*
+
+
+### [2026 LiveLaw (SC) 1135 |  SOHANDEB CHATTOPADHYAY Vs HONBLE SPEAKER WEST BENGAL LEGISLATIVE ASSEMBLY](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1135-sohandeb-chattopadhyay-vs-honble-speaker-west-bengal-legislative-assembly-557452)
+*Published on: Thu, 05 Nov 2026 07:41:47 GMT*
+
+
+### [Supreme Court Expresses Reservations Over Judgment Holding Right To Speedy Trial Cannot Override Stringent NDPS Bail Conditions](https://www.livelaw.in/top-stories/supreme-court-expresses-reservations-over-judgment-holding-right-to-speedy-trial-cannot-override-stringent-ndps-bail-conditions-557451)
+*Published on: Thu, 05 Nov 2026 10:24:59 GMT*
+
+
+### [2026 LiveLaw (SC) 1134 | Devendra Nath Mishra & Ors. v Ravi Bajpai](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1134-devendra-nath-mishra-ors-v-ravi-bajpai-557447)
+*Published on: Thu, 05 Nov 2026 07:15:35 GMT*
+
