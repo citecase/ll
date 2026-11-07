@@ -3832,3 +3832,22 @@
 ### [2026 LiveLaw (SC) 1134 | Devendra Nath Mishra & Ors. v Ravi Bajpai](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1134-devendra-nath-mishra-ors-v-ravi-bajpai-557447)
 *Published on: Thu, 05 Nov 2026 07:15:35 GMT*
 
+### [2026 LiveLaw (SC) 1145 | In Re: 2 Million Lives At Risk, Contamination In Jojari River, Rajasthan](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1145-in-re-2-million-lives-at-risk-contamination-in-jojari-river-rajasthan-557693)
+*Published on: Fri, 06 Nov 2026 16:26:51 GMT*
+
+
+### [2026 LiveLaw (SC) 1144 | A. John Kennedy & Ors. v. State of Tamil Nadu & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1144-a-john-kennedy-ors-v-state-of-tamil-nadu-ors-557686)
+*Published on: Fri, 06 Nov 2026 14:59:00 GMT*
+
+
+### [2026 LiveLaw (SC) 1143 | THE CHAIRMAN NATIONAL BOOK TRUST INDIA & ANR. VERSUS AR ABDUL GAFFAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1143-the-chairman-national-book-trust-india-anr-versus-ar-abdul-gaffar-ors-557682)
+*Published on: Fri, 06 Nov 2026 13:24:22 GMT*
+
+
+### [2026 LiveLaw (SC) 1142 | Union of India v. Rohith Nathan and Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1142-union-of-india-v-rohith-nathan-and-anr-557675)
+*Published on: Fri, 06 Nov 2026 12:05:06 GMT*
+
+
+### [2026 LiveLaw (SC )1141 | State of Himachal Pradesh v. Union of India and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1141-state-of-himachal-pradesh-v-union-of-india-and-others-557638)
+*Published on: Fri, 06 Nov 2026 08:39:39 GMT*
+
