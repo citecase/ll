@@ -3851,3 +3851,14 @@
 ### [2026 LiveLaw (SC )1141 | State of Himachal Pradesh v. Union of India and others](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1141-state-of-himachal-pradesh-v-union-of-india-and-others-557638)
 *Published on: Fri, 06 Nov 2026 08:39:39 GMT*
 
+### [2026 LiveLaw (SC) 1148 | J Rajesh (Minor) Thr His Mother and Natural Guardian J Gomathi v M Kumaran (Dead) Thr LRs & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1148-j-rajesh-minor-thr-his-mother-and-natural-guardian-j-gomathi-v-m-kumaran-dead-thr-lrs-ors-557963)
+*Published on: Tue, 10 Nov 2026 04:55:40 GMT*
+
+
+### [2026 LiveLaw (SC) 1147 | Chatur Singh Dhruw v State of Chhattisgarh & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1147-chatur-singh-dhruw-v-state-of-chhattisgarh-ors-557887)
+*Published on: Mon, 09 Nov 2026 08:34:31 GMT*
+
+
+### [2026 LiveLaw (SC) 1146 | Vishwajeet Singh @ Bishwajeet Ramanand v State of Bihar & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1146-vishwajeet-singh-bishwajeet-ramanand-v-state-of-bihar-ors-557883)
+*Published on: Mon, 09 Nov 2026 08:21:13 GMT*
+
