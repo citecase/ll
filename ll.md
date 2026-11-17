@@ -3868,3 +3868,34 @@
 ### [2026 LiveLaw (SC) 1150 | Sai Maghalakshmi Traders & Ors. v M/s Sri Lakshmi Srinivasa Agro Foods & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1150-sai-maghalakshmi-traders-ors-v-ms-sri-lakshmi-srinivasa-agro-foods-anr-558070)
 *Published on: Wed, 11 Nov 2026 05:12:24 GMT*
 
+### [2026 LiveLaw (SC) 1158 | DR. G. SRINIVASAN VS. UNION OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1158-dr-g-srinivasan-vs-union-of-india-ors-558694)
+*Published on: Tue, 17 Nov 2026 06:04:07 GMT*
+
+
+### [2026 LiveLaw (SC) 1157 | UNION OF INDIA v ARIF NISAR @ SAHIL AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1157-union-of-india-v-arif-nisar-sahil-and-ors-558677)
+*Published on: Tue, 17 Nov 2026 05:10:48 GMT*
+
+
+### [2026 LiveLaw (SC) 1156 | Mithilesh Kumar Pathak v Union of India & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1156-mithilesh-kumar-pathak-v-union-of-india-ors-558666)
+*Published on: Tue, 17 Nov 2026 04:33:13 GMT*
+
+
+### [2026 LiveLaw (SC) 1155 | Lulu International Shopping Malls Private Limited v Gorinka Pratyusha and others Etc](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1154-lulu-international-shopping-malls-private-limited-v-gorinka-pratyusha-and-others-etc-558647)
+*Published on: Mon, 16 Nov 2026 15:40:40 GMT*
+
+
+### [2026 LiveLaw (SC) 1154 | Delhi Development Authority v Rajender Kumar Sharma](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1154-delhi-development-authority-v-rajender-kumar-sharma-558645)
+*Published on: Mon, 16 Nov 2026 15:11:06 GMT*
+
+
+### [2026 LiveLaw (SC) 1153 | DEVILAL GOND VERSUS STATE OF CHHATTISGARH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1153-devilal-gond-versus-state-of-chhattisgarh-ors-558642)
+*Published on: Mon, 16 Nov 2026 15:05:55 GMT*
+
+
+### [2026 LiveLaw (SC) 1152  |  TWINSTAR TECHNOLOGIES LIMITED VERSUS BANK OF MAHARASHTRA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1152-twinstar-technologies-limited-versus-bank-of-maharashtra-ors-558626)
+*Published on: Mon, 16 Nov 2026 13:13:56 GMT*
+
+
+### [2026 LiveLaw (SC) 1151 |NEW OKHLA INDUSTRIAL DEVELOPMENT AUTHORITY VERSUS STATE OF UTTAR PRADESH & ORSju](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1151-new-okhla-industrial-development-authority-versus-state-of-uttar-pradesh-orsju-558578)
+*Published on: Mon, 16 Nov 2026 08:48:48 GMT*
+
