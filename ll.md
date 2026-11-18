@@ -3899,3 +3899,26 @@
 ### [2026 LiveLaw (SC) 1151 |NEW OKHLA INDUSTRIAL DEVELOPMENT AUTHORITY VERSUS STATE OF UTTAR PRADESH & ORSju](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1151-new-okhla-industrial-development-authority-versus-state-of-uttar-pradesh-orsju-558578)
 *Published on: Mon, 16 Nov 2026 08:48:48 GMT*
 
+### [2026 LiveLaw (SC) 1164 | Ashok Versus Mahesh & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1164-ashok-versus-mahesh-anr-558830)
+*Published on: Tue, 17 Nov 2026 15:51:49 GMT*
+
+
+### [2026 LiveLaw (SC) 1163 | M/s. Ganesh Benzoplast Ltd. v. The State Trading Corporation of India](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1163-ms-ganesh-benzoplast-ltd-v-the-state-trading-corporation-of-india-558806)
+*Published on: Tue, 17 Nov 2026 13:37:46 GMT*
+
+
+### [2026 LiveLaw (SC) 1162 | T. AKON PHOM AND OTHERS VERSUS STATE OF NAGALAND AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1162-t-akon-phom-and-others-versus-state-of-nagaland-and-others-558798)
+*Published on: Tue, 17 Nov 2026 13:04:59 GMT*
+
+
+### [2026 LiveLaw (SC) 1161 | SUMIT KUMAR VERSUS UNION OF INDIA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1161-sumit-kumar-versus-union-of-india-ors-558794)
+*Published on: Tue, 17 Nov 2026 12:53:30 GMT*
+
+
+### [2026 LiveLaw (SC) 1160 | ELAINE INFO SOLUTIONS PVT. LTD. v M/S. J & A AVENUES INDIA PRIVATE LIMITED AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1160-elaine-info-solutions-pvt-ltd-v-ms-j-a-avenues-india-private-limited-and-ors-558778)
+*Published on: Tue, 17 Nov 2026 11:32:13 GMT*
+
+
+### [2026 LiveLaw (SC) 1159 | NARESH VERSUS STATE OF HARYANA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1159-naresh-versus-state-of-haryana-558775)
+*Published on: Tue, 17 Nov 2026 11:26:07 GMT*
+
