@@ -3922,3 +3922,38 @@
 ### [2026 LiveLaw (SC) 1159 | NARESH VERSUS STATE OF HARYANA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1159-naresh-versus-state-of-haryana-558775)
 *Published on: Tue, 17 Nov 2026 11:26:07 GMT*
 
+### [2026 LiveLaw (SC) 1173 |  BIBOL TOPPO & ORS. VERSUS STATE OF ODISHA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1173-bibol-toppo-ors-versus-state-of-odisha-ors-559050)
+*Published on: Thu, 19 Nov 2026 05:53:03 GMT*
+
+
+### [2026 LiveLaw (SC) 1172 | IN RE: PHALODI ACCIDENT VERSUS NATIONAL HIGHWAYS AUTHORITY OF INDIA & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1171-in-re-phalodi-accident-versus-national-highways-authority-of-india-ors-559024)
+*Published on: Thu, 19 Nov 2026 03:09:03 GMT*
+
+
+### [2026 LiveLaw (SC) 1171 | Ashok Kumar v. Central Bank of India & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1171-ashok-kumar-v-central-bank-of-india-ors-558998)
+*Published on: Wed, 18 Nov 2026 14:33:54 GMT*
+
+
+### [2026 LiveLaw (SC) 1170 |  Rajasthan Rajya Vidyut Utpadan Nigam Ltd.v Parsa Kente Collieries Limited](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1170-rajasthan-rajya-vidyut-utpadan-nigam-ltdv-parsa-kente-collieries-limited-558969)
+*Published on: Wed, 18 Nov 2026 12:54:08 GMT*
+
+
+### [2026 LiveLaw (SC) 1169 | Ku. Kiran D/o Purushottam Bhujade v Sudhir Shikshan Sanstha & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1169-ku-kiran-do-purushottam-bhujade-v-sudhir-shikshan-sanstha-ors-558939)
+*Published on: Wed, 18 Nov 2026 11:13:09 GMT*
+
+
+### [2026 LiveLaw (SC) 1168 | State of Kerala & Anr. v P Krishna Pillai & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1168-state-of-kerala-anr-v-p-krishna-pillai-ors-558897)
+*Published on: Wed, 18 Nov 2026 07:43:29 GMT*
+
+
+### [2026 LiveLaw (SC) 1167 | STATE OF U.P v. MOHAMMAD AZAM KHAN AND ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1167-state-of-up-v-mohammad-azam-khan-and-ors-558891)
+*Published on: Wed, 18 Nov 2026 07:59:11 GMT*
+
+
+### [2026 LiveLaw (SC) 1166 | Kishore Avarsekar & Ors. v Assets Care and Reconstruction Enterprises Ltd & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1166-kishore-avarsekar-ors-v-assets-care-and-reconstruction-enterprises-ltd-ors-558884)
+*Published on: Wed, 18 Nov 2026 06:49:54 GMT*
+
+
+### [2026 LiveLaw (SC) 1165 | Government of NCT of Delhi and Anr v Gautam Chopra and Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1165-government-of-nct-of-delhi-and-anr-v-gautam-chopra-and-ors-558876)
+*Published on: Wed, 18 Nov 2026 06:30:52 GMT*
+
