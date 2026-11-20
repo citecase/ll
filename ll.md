@@ -3957,3 +3957,26 @@
 ### [2026 LiveLaw (SC) 1165 | Government of NCT of Delhi and Anr v Gautam Chopra and Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1165-government-of-nct-of-delhi-and-anr-v-gautam-chopra-and-ors-558876)
 *Published on: Wed, 18 Nov 2026 06:30:52 GMT*
 
+### [2026 LiveLaw (SC) 1179 | Helena Anna Maria Lersch v. State of Goa & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1179-helena-anna-maria-lersch-v-state-of-goa-anr-559225)
+*Published on: Fri, 20 Nov 2026 04:45:02 GMT*
+
+
+### [2026 LiveLaw (SC) 1178  | Edelweiss Asset Reconstruction Company Limited v State of NCT of Delhi & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1178-edelweiss-asset-reconstruction-company-limited-v-state-of-nct-of-delhi-ors-559186)
+*Published on: Thu, 19 Nov 2026 14:29:58 GMT*
+
+
+### [2026 LiveLaw (SC) 1177 | THE GEM AND JEWELLERY EXPORT PROMOTION COUNCIL VERSUS THE STATE OF MAHARASHTRA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1177-the-gem-and-jewellery-export-promotion-council-versus-the-state-of-maharashtra-and-others-559184)
+*Published on: Thu, 19 Nov 2026 13:57:18 GMT*
+
+
+### [2026 LiveLaw (SC) 1176 | Bheemanagouda @ Bheemajja v State by Harapanahalli Police](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1176-bheemanagouda-bheemajja-v-state-by-harapanahalli-police-559146)
+*Published on: Thu, 19 Nov 2026 11:12:35 GMT*
+
+
+### [2026 LiveLaw (SC) 1175 | State of Goa v Agniv Sengupta](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1175-state-of-goa-v-agniv-sengupta-559142)
+*Published on: Thu, 19 Nov 2026 11:06:11 GMT*
+
+
+### [2026 LiveLaw (SC) 1174 | Uttar Pradesh Avas Evam Vikas Parishad & Anr. v M/s Gaursons India Pvt. Ltd. & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1174-uttar-pradesh-avas-evam-vikas-parishad-anr-v-ms-gaursons-india-pvt-ltd-ors-559105)
+*Published on: Thu, 19 Nov 2026 09:35:24 GMT*
+
