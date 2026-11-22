@@ -3999,3 +3999,14 @@
 ### [2026 LiveLaw (SC) 1180 |  UTTAR PRADESH GROUND WATER DEPARTMENT NON GAZETTED EMPLOYEE ASSOCIATION (REGD.) & ANR. VERSUS THE CHIEF SECRETARY & ORS. (with connected cases](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1180-uttar-pradesh-ground-water-department-non-gazetted-employee-association-regd-anr-versus-the-chief-secretary-ors-with-connected-cases-559246)
 *Published on: Fri, 20 Nov 2026 05:57:46 GMT*
 
+### [2026 LiveLaw (SC) 1187 |  M/s Kalindi Associates v M/s Bharat Commerce and Industries Limited & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1187-ms-kalindi-associates-v-ms-bharat-commerce-and-industries-limited-ors-559450)
+*Published on: Sat, 21 Nov 2026 11:27:36 GMT*
+
+
+### [2026 LiveLaw (SC) 1186 | DELHI DEVELOPMENT AUTHORITY v.SUDARSHAN MANJHI & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1186-delhi-development-authority-vsudarshan-manjhi-ors-559434)
+*Published on: Sat, 21 Nov 2026 09:33:00 GMT*
+
+
+### [2026 LiveLaw (SC) 1185 | JC-377745M Ex Sub Maj & Hony Lt Devi Singh v. Union of India & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1185-jc-377745m-ex-sub-maj-hony-lt-devi-singh-v-union-of-india-ors-559412)
+*Published on: Sat, 21 Nov 2026 06:37:51 GMT*
+
