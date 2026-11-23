@@ -4010,3 +4010,6 @@
 ### [2026 LiveLaw (SC) 1185 | JC-377745M Ex Sub Maj & Hony Lt Devi Singh v. Union of India & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1185-jc-377745m-ex-sub-maj-hony-lt-devi-singh-v-union-of-india-ors-559412)
 *Published on: Sat, 21 Nov 2026 06:37:51 GMT*
 
+### [2026 LiveLaw (SC )1188 |  Ravi Kumar Jangra and Anr. v. Union of India and Ors.,](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1188-ravi-kumar-jangra-and-anr-v-union-of-india-and-ors-559495)
+*Published on: Sun, 22 Nov 2026 09:08:45 GMT*
+
