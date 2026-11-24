@@ -4013,3 +4013,34 @@
 ### [2026 LiveLaw (SC )1188 |  Ravi Kumar Jangra and Anr. v. Union of India and Ors.,](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1188-ravi-kumar-jangra-and-anr-v-union-of-india-and-ors-559495)
 *Published on: Sun, 22 Nov 2026 09:08:45 GMT*
 
+### [2026 LiveLaw (SC) 1196 | SARIKA TYAGI v. UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1196-sarika-tyagi-v-union-of-india-559751)
+*Published on: Tue, 24 Nov 2026 06:39:23 GMT*
+
+
+### [2026 LiveLaw (SC) 1195 | SAU. RUPALI INDRABHUSHAN SONDE @ KU. RUPALI SHARADRAO BADHIYE v. THE STATE OF MAHARASHTRA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1195-sau-rupali-indrabhushan-sonde-ku-rupali-sharadrao-badhiye-v-the-state-of-maharashtra-559750)
+*Published on: Tue, 24 Nov 2026 06:37:14 GMT*
+
+
+### [2026 LiveLaw (SC) 1194 | UMANG SINGHAR v. STATE OF MADHYA PRADESH & ORS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1194-umang-singhar-v-state-of-madhya-pradesh-ors-559719)
+*Published on: Tue, 24 Nov 2026 05:22:50 GMT*
+
+
+### [2026 LiveLaw (SC) 1193 | JAGDISH SINGH Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1193-jagdish-singh-vs-union-of-india-559715)
+*Published on: Tue, 24 Nov 2026 05:20:39 GMT*
+
+
+### [2026 LiveLaw (SC) 1192 | STATE OF TAMIL NADU Versus STATE OF KARNATAKA AND ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1192-state-of-tamil-nadu-versus-state-of-karnataka-and-ors-559714)
+*Published on: Tue, 24 Nov 2026 05:18:21 GMT*
+
+
+### [2026 LiveLaw (SC) 1191 |  CHANDER PAL VERSUS RAHUL @ VIKRAM & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1191-chander-pal-versus-rahul-vikram-anr-559710)
+*Published on: Tue, 24 Nov 2026 05:08:01 GMT*
+
+
+### [2026 LiveLaw (SC) 1190 | NEERAJ KUMAR VERSUS SURAJ PRAKASH & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1190-neeraj-kumar-versus-suraj-prakash-ors-559677)
+*Published on: Mon, 23 Nov 2026 13:54:36 GMT*
+
+
+### [2026 LiveLaw (SC )1189 | OKHLA ENCLAVE PLOT HOLDERS WELFARE ASSOCIATION VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1189-okhla-enclave-plot-holders-welfare-association-versus-union-of-india-and-others-559673)
+*Published on: Mon, 23 Nov 2026 13:25:00 GMT*
+
