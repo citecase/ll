@@ -4044,3 +4044,6 @@
 ### [2026 LiveLaw (SC )1189 | OKHLA ENCLAVE PLOT HOLDERS WELFARE ASSOCIATION VERSUS UNION OF INDIA AND OTHERS](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1189-okhla-enclave-plot-holders-welfare-association-versus-union-of-india-and-others-559673)
 *Published on: Mon, 23 Nov 2026 13:25:00 GMT*
 
+### [2026 LiveLaw (SC) 1197 | Mohammad Sabir v Ramesh Prasad & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1197-mohammad-sabir-v-ramesh-prasad-ors-559776)
+*Published on: Tue, 24 Nov 2026 09:28:03 GMT*
+
