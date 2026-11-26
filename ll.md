@@ -4047,3 +4047,30 @@
 ### [2026 LiveLaw (SC) 1197 | Mohammad Sabir v Ramesh Prasad & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1197-mohammad-sabir-v-ramesh-prasad-ors-559776)
 *Published on: Tue, 24 Nov 2026 09:28:03 GMT*
 
+### [2026 LiveLaw (SC) 1204 |Md. Akter Khan @ Bapon Khan Versus The State of Assam & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1203-md-akter-khan-bapon-khan-versus-the-state-of-assam-ors-560045)
+*Published on: Thu, 26 Nov 2026 05:01:52 GMT*
+
+
+### [2026 LiveLaw (SC) 1203 | PRABHU SINGH VERSUS STATE OF UTTAR PRADESH](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1203-prabhu-singh-versus-state-of-uttar-pradesh-560012)
+*Published on: Wed, 25 Nov 2026 15:35:23 GMT*
+
+
+### [2026 LiveLaw (SC) 1202 | SUBODH AGARWAL VS. STATE OF RAJASTHAN](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1202-subodh-agarwal-vs-state-of-rajasthan-559997)
+*Published on: Wed, 25 Nov 2026 14:41:40 GMT*
+
+
+### [2026 LiveLaw (SC) 1201 | DEEPTI SINGH VERSUS STATE OF U.P. & ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1201-deepti-singh-versus-state-of-up-anr-559980)
+*Published on: Wed, 25 Nov 2026 13:01:06 GMT*
+
+
+### [2026 LiveLaw (SC) 1200 | Babita Chopra Versus State (GNCT of Delhi) & Anr.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1200-babita-chopra-versus-state-gnct-of-delhi-anr-559959)
+*Published on: Wed, 25 Nov 2026 11:17:45 GMT*
+
+
+### [2026 LiveLaw (SC) 1199 | J Sakthi Devi @ Chriti v Joseph Charles](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1199-j-sakthi-devi-chriti-v-joseph-charles-559957)
+*Published on: Wed, 25 Nov 2026 11:10:54 GMT*
+
+
+### [2026 LiveLaw (SC) 1198 |  All India IDBI Officers Association v. Union of India & Ors. (with connected appeals)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1198-all-india-idbi-officers-association-v-union-of-india-ors-with-connected-appeals-559951)
+*Published on: Wed, 25 Nov 2026 10:42:10 GMT*
+
