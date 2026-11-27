@@ -4074,3 +4074,46 @@
 ### [2026 LiveLaw (SC) 1198 |  All India IDBI Officers Association v. Union of India & Ors. (with connected appeals)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1198-all-india-idbi-officers-association-v-union-of-india-ors-with-connected-appeals-559951)
 *Published on: Wed, 25 Nov 2026 10:42:10 GMT*
 
+### [2026 LiveLaw (SC) 1215 |  DESTINI REALPRO DEVELOPERS LLP (FORMERLY KNOWN AS M/S FENKIN INFOTECH LLP) VERSUS ANIRUDDH NIKHIL MAKHECHA & ORS. (with connected cases)](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1215-destini-realpro-developers-llp-formerly-known-as-ms-fenkin-infotech-llp-versus-aniruddh-nikhil-makhecha-ors-with-connected-cases-560239)
+*Published on: Fri, 27 Nov 2026 06:18:51 GMT*
+
+
+### [2026 LiveLaw (SC) | 1214 UNION OF INDIA Vs J. SEKAR](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1214-union-of-india-vs-j-sekar-560206)
+*Published on: Thu, 26 Nov 2026 16:00:42 GMT*
+
+
+### [2026 LiveLaw (SC) 1213 |P. Kathirvel Versus State](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1213-p-kathirvel-versus-state-560186)
+*Published on: Thu, 26 Nov 2026 15:56:48 GMT*
+
+
+### [2026 LiveLaw (SC) 1212 | Sukumarbai & Ors v United Insurance Company Ltd. & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1212-sukumarbai-ors-v-united-insurance-company-ltd-anr-560149)
+*Published on: Thu, 26 Nov 2026 11:09:39 GMT*
+
+
+### [2026 LiveLaw (SC) 1211 | REKHA VERSUS JAIPUR VIDYUT VITRAN NIGAM LIMITED & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1211-rekha-versus-jaipur-vidyut-vitran-nigam-limited-ors-560136)
+*Published on: Thu, 26 Nov 2026 10:33:25 GMT*
+
+
+### [2026 LiveLaw (SC) 1210 | BRIJ KUMAR MISHRA VERSUS NILAMBER PITAMBAR UNIVERSITY & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1210-brij-kumar-mishra-versus-nilamber-pitambar-university-ors-560119)
+*Published on: Thu, 26 Nov 2026 09:33:35 GMT*
+
+
+### [2026 LiveLaw (SC) 1209 | UV Asset Reconstruction Company Ltd. v Gautam Sinha & Ors.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1209-uv-asset-reconstruction-company-ltd-v-gautam-sinha-ors-560115)
+*Published on: Thu, 26 Nov 2026 09:17:24 GMT*
+
+
+### [2026 LiveLaw (SC) 1208 | Khursheed Ahmad Chowhan v Union Territory of J and K & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1208-khursheed-ahmad-chowhan-v-union-territory-of-j-and-k-ors-560113)
+*Published on: Thu, 26 Nov 2026 09:08:00 GMT*
+
+
+### [2026 LiveLaw (SC) 1207 | M/s PM Shah and Co. v Asmit Vijay Vedak & Ors](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1207-ms-pm-shah-and-co-v-asmit-vijay-vedak-ors-560095)
+*Published on: Thu, 26 Nov 2026 08:05:51 GMT*
+
+
+### [2026 LiveLaw (SC) 1206 | 3S AND OUR HEALTH SOCIETY Vs UNION OF INDIA](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1206-3s-and-our-health-society-vs-union-of-india-560090)
+*Published on: Thu, 26 Nov 2026 07:56:09 GMT*
+
+
+### [2026 LiveLaw (SC) 1205| STATE OF KARNATAKA Versus VINAY RAJASHEKHARAPPA KULKARNI AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1205-state-of-karnataka-versus-vinay-rajashekharappa-kulkarni-and-anr-560086)
+*Published on: Thu, 26 Nov 2026 15:01:50 GMT*
+
