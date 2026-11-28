@@ -4117,3 +4117,18 @@
 ### [2026 LiveLaw (SC) 1205| STATE OF KARNATAKA Versus VINAY RAJASHEKHARAPPA KULKARNI AND ANR.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1205-state-of-karnataka-versus-vinay-rajashekharappa-kulkarni-and-anr-560086)
 *Published on: Thu, 26 Nov 2026 15:01:50 GMT*
 
+### [2026 LiveLaw (SC) 1219 | Ramsakhi Gupta v ICICI Lombard General Insurance Co. Ltd. & Anr](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1218-ramsakhi-gupta-v-icici-lombard-general-insurance-co-ltd-anr-560357)
+*Published on: Sat, 28 Nov 2026 05:09:34 GMT*
+
+
+### [2026 LiveLaw (SC) 1218 | ASST. GENERAL MANAGER, STATE BANK OF INDIA VERSUS S. LOGANATHAN & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1218-asst-general-manager-state-bank-of-india-versus-s-loganathan-ors-560353)
+*Published on: Sat, 28 Nov 2026 04:59:21 GMT*
+
+
+### [2026 LiveLaw (SC) 1217  | TELUGU UMADEVI KRISHNAIAH & ANR.VERSUS THE STATE OF BIHAR & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1217-telugu-umadevi-krishnaiah-anrversus-the-state-of-bihar-ors-560306)
+*Published on: Fri, 27 Nov 2026 11:32:18 GMT*
+
+
+### [2026 LiveLaw (SC) 1216 | STATE BANK OF INDIA Versus STATE OF MAHARASHTRA & ORS.](https://www.livelaw.in/sc-judgments/2026-livelaw-sc-1216-state-bank-of-india-versus-state-of-maharashtra-ors-560259)
+*Published on: Fri, 27 Nov 2026 07:56:34 GMT*
+
